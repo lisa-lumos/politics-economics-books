@@ -20,6 +20,41 @@ It is indeed difficult for ordinary citizens to acquire real political power, an
 Fundamentally, it is a political transformation of this sort that is required for a poor society to become rich. 
 
 # 1. So close and yet so different
+The residents fo Nogales, Arizona, US, take it for granted that, with all its inefficiency and occasional corruption, the government is their agent. They can vote to replace their mayor, congressmen, and senators; they vote in the presidential elections, that wil determine who will lead their country. Democracy is their 2nd nature. 
+
+Life south of the border, for the residents of Nogales, Sonora, Mexico, is very different. Crime is high, and opening a business is a risky activity. Not only do you risk robbery, but getting all the permissions, and greasing all the palms just to open, is no easy endeavor. Residents live with politician's corruption and ineptitude every day. 
+
+Nogales, Arizona, is in the US, which enable residents to choose their occupations freely, acquire schooling and skills, and encourage their employers to invest in the best technology, which leads to higher wages for them. They also have access to political institutions that allow them to take part in the democratic process, to elect their representatives, and replace them if they misbehave. In consequence, politicians provide the basic services that the citizens demand. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
