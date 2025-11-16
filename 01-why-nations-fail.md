@@ -20,6 +20,7 @@ It is indeed difficult for ordinary citizens to acquire real political power, an
 Fundamentally, it is a political transformation of this sort that is required for a poor society to become rich. 
 
 # 1. So close and yet so different
+## The economies of the Rio Grande
 The residents fo Nogales, Arizona, US, take it for granted that, with all its inefficiency and occasional corruption, the government is their agent. They can vote to replace their mayor, congressmen, and senators; they vote in the presidential elections, that wil determine who will lead their country. Democracy is their 2nd nature. 
 
 Life south of the border, for the residents of Nogales, Sonora, Mexico, is very different. Crime is high, and opening a business is a risky activity. Not only do you risk robbery, but getting all the permissions, and greasing all the palms just to open, is no easy endeavor. Residents live with politician's corruption and ineptitude every day. 
@@ -28,8 +29,10 @@ Nogales, Arizona, is in the US, which enable residents to choose their occupatio
 
 Societies were formed differently during the early colonial period, leading to different institutions to present day. 
 
+## The founding of Buenos Aires
 In the 1500s, English colonists reached South America, they were not interested in tilling the soil themselves - they wanted others to do it for them, and they wanted riches, gold and silver, to plunder. 
 
+## From Cajamarca
 The Spanish found that the best way for them to subdue opposition, was to capture the indigenous leader. In Calca and Acomayo, people grow the same crops, but in Calca, they sell them on the market for money. In Acamayo they grow food for their own subsistence. The major differences between the two places, is that Acomayo was in the catchment area of the Potosi mita (brutal forced labor system). 
 
 Throughout the Spanish colonial world in the Americas, similar institutions and social structure emerged. Besides looting, the Spanish created a web of institutions designed to exploit the indigenous peoples. The system was designed to force indigenous people's living standards down to a subsistence level, and thus extract all income in excess of this for Spanish elites. This was achieved by:
@@ -41,15 +44,18 @@ Throughout the Spanish colonial world in the Americas, similar institutions and 
 
 Though these institutions generated a lot of wealth for the Spanish Crown, and made the conquistadors and their descendants very rich, they also turned Latin America into the most unequal continent in the world, and sapped much ouf its economic potential. 
 
+## To Jamestown
+In the 1600s, English colonists arrived at Jamestown, VA, US. Due to population density, and impossible to coerce neither locals or settlers, they adopted a new strategy: give the settlers incentives. In 1618, the Virginia Company begant he "headright system", which gave each male settler 50 acres of land, and 50 more acres for each member of his family and their servants. Settlers were given houses, and in 1619 a General Assembly was introduced, that effectively gave all men a say in the laws and institutions governing the colony. It was the start of democracy in the United States. 
 
+The rest of the 1600s saw a long series of struggles over the 2nd lesson: that the only option for an economically viable colony, was to create institutions that gave colonists incentives to invest, and to work hard. 
 
+As North America developed, English elites tried time and time again to setup institutions that would heavily restrict the economic and political rights for all, but a privileged few, just as the Spanish did. Yet in each case this model broke down, as it had in Virginia. It was impossible to force settlers into a rigid hierarchical society, because there were simply to many options open to them in the New World. Instead, they had to be provided with incentives for them to want to work. And soon, they were demanding more economic freedom, and further political rights. 
 
+By the 1720s, all the 13 colonies of what was to become the United States had similar structures of government. They were not democracies; women, slaves, and propertyless could not vote. But political rights were very broad, compared with contemporary societies elsewhere. 
 
+It was these assemblies and their leaders that coalesced to form the First Continental Congress in 1774, the prelude to the independence of the United States. The assemblies believed they had the right to determine both their own membership, and the right to taxation. 
 
-
-
-
-
+## A tale of two constitutions
 
 
 
