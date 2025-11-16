@@ -26,8 +26,20 @@ Life south of the border, for the residents of Nogales, Sonora, Mexico, is very 
 
 Nogales, Arizona, is in the US, which enable residents to choose their occupations freely, acquire schooling and skills, and encourage their employers to invest in the best technology, which leads to higher wages for them. They also have access to political institutions that allow them to take part in the democratic process, to elect their representatives, and replace them if they misbehave. In consequence, politicians provide the basic services that the citizens demand. 
 
+Societies were formed differently during the early colonial period, leading to different institutions to present day. 
 
+In the 1500s, English colonists reached South America, they were not interested in tilling the soil themselves - they wanted others to do it for them, and they wanted riches, gold and silver, to plunder. 
 
+The Spanish found that the best way for them to subdue opposition, was to capture the indigenous leader. In Calca and Acomayo, people grow the same crops, but in Calca, they sell them on the market for money. In Acamayo they grow food for their own subsistence. The major differences between the two places, is that Acomayo was in the catchment area of the Potosi mita (brutal forced labor system). 
+
+Throughout the Spanish colonial world in the Americas, similar institutions and social structure emerged. Besides looting, the Spanish created a web of institutions designed to exploit the indigenous peoples. The system was designed to force indigenous people's living standards down to a subsistence level, and thus extract all income in excess of this for Spanish elites. This was achieved by:
+- expropriating their land
+- forcing them to work
+- offering low wages for labor services
+- imposing high taxes
+- charging high prices for goods that wer not even voluntarily bought. 
+
+Though these institutions generated a lot of wealth for the Spanish Crown, and made the conquistadors and their descendants very rich, they also turned Latin America into the most unequal continent in the world, and sapped much ouf its economic potential. 
 
 
 
