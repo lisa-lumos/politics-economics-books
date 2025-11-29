@@ -56,7 +56,13 @@ By the 1720s, all the 13 colonies of what was to become the United States had si
 It was these assemblies and their leaders that coalesced to form the First Continental Congress in 1774, the prelude to the independence of the United States. The assemblies believed they had the right to determine both their own membership, and the right to taxation. 
 
 ## A tale of two constitutions
+The document that the delegates sat down to write in Philadelphia in 1787-05 was a long process initiated by the formation of the General Assembly in Jamestown in 1619. 
 
+The Constitution of the US did not create a democracy by modern standards. Who could vote in elections was left up to the individual states to determine. 
+
+The most sordid negotiation concerned the division of the seats in the House of Representatives among the states. These were to be allocated on the basis of a state's population, but the congressional representatives of southern states then demanded that the slaves be counted. Northerners objected. The compromise was that in apportioning seats to the House of Representatives, a slave would count as 3/5 of a free person. 
+
+These fudges kept the political institutions of the US working peacefully, until the Civil War finally resolved the conflicts in favor of the North. 
 
 
 
