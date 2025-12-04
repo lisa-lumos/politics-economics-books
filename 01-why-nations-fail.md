@@ -64,7 +64,9 @@ The most sordid negotiation concerned the division of the seats in the House of 
 
 These fudges kept the political institutions of the US working peacefully, until the Civil War finally resolved the conflicts in favor of the North. 
 
+If the US experienced 5 years of political instability between 1860 and 1865, Mexico experienced almost nonstop instability for the first 50 years of independence. 
 
+The motivation behind the Mexican declaration of independence, was to protect the set of economic institutions developed during the colonial period, which had made Mexico "the country of inequality". These institutions, by basing the society on the exploitation of indigenous people, and the creation of monopolies, blocked the economic incentives and initiatives of the great mass of the population. 
 
 
 
