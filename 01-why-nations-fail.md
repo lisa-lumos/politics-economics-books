@@ -68,22 +68,53 @@ If the US experienced 5 years of political instability between 1860 and 1865, Me
 
 The motivation behind the Mexican declaration of independence, was to protect the set of economic institutions developed during the colonial period, which had made Mexico "the country of inequality". These institutions, by basing the society on the exploitation of indigenous people, and the creation of monopolies, blocked the economic incentives and initiatives of the great mass of the population. 
 
+## Having an idea, starting a firm, and getting a loan
+## Path-dependent change
+## Making a billion or two
+## Toward a theory of world inequality
 
 
+# 2. Theories that don't work
+## THE LAY OF THE LAND
+## THE GEOGRAPHY HYPOTHESIS
+## THE CULTURE HYPOTHESIS
+## THE IGNORANCE HYPOTHESIS
 
+# 3. The making of prosperity and poverty
+## The economics of the 38th parallel
+## Extractive and inclusive economic institutions
+## Engines of prosperity
+## Extractive and inclusive political institutions
+## Why not always choose prosperity?
+## The long agony of the congo
+## Growth under extractive political institutions
 
+# 4. Small differences and critical junctures: the weight of history
+## The world the plague created
+## The making of inclusive institutions
+## Small differences that matter
+## The contingent path of history
+## Understanding the lay of the land
 
+# 5. I've seen the future, and it works: growth under extractive institutions
+## I've seen the future
+## On the banks of the Kasai
+## The long summer
+## The unstable extraction
+## What goes wrong?
 
+# 6. Drifting apart
+## How Venice became a museum
+## Roman virtues ...
+## ... Roman vices
+## No one writes from Vindolanda
+## Diverging paths
+## Consequences of early growth
 
-
-
-
-
-
-
-
-
-
-
-
+# 7. The turning point
+## Trouble with stockings
+## Ever-present political conflict
+## The glorious revolution
+## The industrial revolution
+## Why in england?
 
