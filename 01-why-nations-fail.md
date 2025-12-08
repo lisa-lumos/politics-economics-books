@@ -118,3 +118,32 @@ The motivation behind the Mexican declaration of independence, was to protect th
 ## The industrial revolution
 ## Why in england?
 
+# 8. Not on our turf: barriers to development
+## No printing allowed
+## A small difference that mattered
+## Fear of industry
+## No shipping allowed
+## The absolutism of Prester John
+## The children of Samaale
+## Enduring backwardness
+
+# 9. Reversing development
+## Spice and genocide
+## The all-too-usual institution
+## Making a dual economy
+## Development reversed
+
+# 10. The diffusion of prosperity
+## Honor among thieves
+## Breaking the barriers: the French Revolution
+## Exporting the revolution
+## Seeking modernity
+## Roots of world inequality
+
+# 11. The virtuous circle
+## The black act
+## The slow march of democracy
+## Busting trusts
+## Packing the court
+## Positive feedback and virtuous circles
+
