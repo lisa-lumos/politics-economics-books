@@ -147,3 +147,30 @@ The motivation behind the Mexican declaration of independence, was to protect th
 ## Packing the court
 ## Positive feedback and virtuous circles
 
+# 12. The vicious circle
+## You can't take the train to Bo anymore
+## From Encomienda to land grab
+## From slavery to Jim Crow
+## The iron law of oligarchy
+## Negative feedback and vicious circles
+
+# 13. Why nations fail today
+## How to win the lottery in Zimbabwe
+## A children's crusade?
+## Who is the state?
+## El Corralito
+## The new absolutism
+## King Cotton
+## Keeping the playing field at an angle
+## Why nations fail
+
+# 14. Breaking the mold
+## Three African chiefs
+## The end of the southern extraction
+## Rebirth in China
+
+# 15. Understanding prosperity and poverty
+## Historical origins
+## The irresistible charm of authoritarian growth
+## You can't engineer prosperity
+## The failure of foreign aid
