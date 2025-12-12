@@ -69,6 +69,12 @@ If the US experienced 5 years of political instability between 1860 and 1865, Me
 The motivation behind the Mexican declaration of independence, was to protect the set of economic institutions developed during the colonial period, which had made Mexico "the country of inequality". These institutions, by basing the society on the exploitation of indigenous people, and the creation of monopolies, blocked the economic incentives and initiatives of the great mass of the population. 
 
 ## Having an idea, starting a firm, and getting a loan
+The engine of technological breakthroughs throughout the economy was innovation, spearheaded by new entrepreneurs and businessman eager to apply their new ideas. 
+
+The striking thing about the evidence on patenting in the US, is that people who were granted patents came from all sorts of backgrounds and all walks of life, not just the rich and the elite. 
+
+Just as the US in the 1800s was more democratic politically than almost any other nation in the world at the time, it was also more democratic than others when it came to innovation. This was critical to its path to becoming the most economically innovative nation in the world. 
+
 ## Path-dependent change
 ## Making a billion or two
 ## Toward a theory of world inequality
