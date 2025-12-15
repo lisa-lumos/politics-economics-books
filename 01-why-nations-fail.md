@@ -77,7 +77,9 @@ Just as the US in the 1800s was more democratic politically than almost any othe
 
 During the 1800s, there was a rapid expansion of financial intermediation and banking, that was a crucial facilitator of the rapid growth and industrialization that the economy experienced. Potential investors in teh US had ready access to capital to start their businesses. Moreover, the intense competition among banks and financial institutions in the US meant that the capital was available at fairly low interest rates. 
 
+Unlike in the US, where competition was fierce, there was practically no competition among Mexican banks. It meant that the banks were able to charge their consumers very high interest rates, and typically confined lending to the privileged and the already wealthy, who would then use their access to credit to increase their grip over the various sectors of the economy. 
 
+Similar to Mexico, military men sometimes enter politics. However, non of the US military men used force to get into power, nor did they use force to avoid having to relinquish power - they abided by the Constitution. However, Mexican presidents could only be removed from power the same way they had attained it: by the use of force. 
 
 
 
