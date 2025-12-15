@@ -75,7 +75,7 @@ The striking thing about the evidence on patenting in the US, is that people who
 
 Just as the US in the 1800s was more democratic politically than almost any other nation in the world at the time, it was also more democratic than others when it came to innovation. This was critical to its path to becoming the most economically innovative nation in the world. 
 
-During the 1800s, there was a rapid expansion of financial intermediation and banking, that was a crucial facilitator of the rapid growth and industrialization that the economy experienced. Moreover, the intense competition among banks and financial institutions in the US meant that the capital was available at fairly low interest rates. 
+During the 1800s, there was a rapid expansion of financial intermediation and banking, that was a crucial facilitator of the rapid growth and industrialization that the economy experienced. Potential investors in teh US had ready access to capital to start their businesses. Moreover, the intense competition among banks and financial institutions in the US meant that the capital was available at fairly low interest rates. 
 
 
 
