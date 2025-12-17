@@ -90,7 +90,11 @@ Unlike Mexico, in the US, the citizens could keep politicians in check, and get 
 The broad distribution of political rights in the US guaranteed equal access to finance and loans. This in turn ensured that those with ideas and inventions could benefit from them. 
 
 ## Path-dependent change
+The world economy boomed in the 1850s, and innovations in transportation, such as the steamship and the railway, led to a huge expansion of international trade. This meant that the elites in the resource rich Mexico could enrich themselves by exporting raw materials to industrializing North America or Western Europe.  They made a "path-dependent" change, leading only to the next stage of the institutions that had already made much of Latin America poor and unequal. 
 
+Globalization made the large open spaces of the Americas (the open frontiers) valuable. 
+- In the US, a long series of legislative acts, ranging form the Land Ordinance of 1785, to the Homestead Act of 1862, gae broad access to frontier lands. This created an egalitarian (equal) and economically dynamic frontier. 
+- In most Latin America countries, Frontier lands were allocated to elites, making such people even more powerful. 
 
 ## Making a billion or two
 
