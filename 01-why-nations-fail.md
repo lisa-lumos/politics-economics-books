@@ -81,6 +81,23 @@ Unlike in the US, where competition was fierce, there was practically no competi
 
 Similar to Mexico, military men sometimes enter politics. However, non of the US military men used force to get into power, nor did they use force to avoid having to relinquish power - they abided by the Constitution. However, Mexican presidents could only be removed from power the same way they had attained it: by the use of force. 
 
+Mexican presidents violated people's property rights, facilitating the expropriation of land, and granted monopolies/favors to his supporters in all lines of business. 
+
+The profit motive. Same in the US, politicians tried to set up state banking monopolies, which they could give to their allies in exchange for part of the monopoly profits. However, they are subject to election and reelection, so the situation was not sustainable. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
