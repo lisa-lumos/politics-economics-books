@@ -85,24 +85,16 @@ Mexican presidents violated people's property rights, facilitating the expropria
 
 The profit motive. Same in the US, politicians tried to set up state banking monopolies, which they could give to their allies in exchange for part of the monopoly profits. However, they are subject to election and reelection, so the situation was not sustainable. 
 
+Unlike Mexico, in the US, the citizens could keep politicians in check, and get rid of the ones who would use their offices to enrich themselves, or create monopolies for their cronies. 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+The broad distribution of political rights in the US guaranteed equal access to finance and loans. This in turn ensured that those with ideas and inventions could benefit from them. 
 
 ## Path-dependent change
+
+
 ## Making a billion or two
+
+
 ## Toward a theory of world inequality
 
 
