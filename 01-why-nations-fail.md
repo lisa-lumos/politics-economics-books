@@ -96,6 +96,8 @@ Globalization made the large open spaces of the Americas (the open frontiers) va
 - In the US, a long series of legislative acts, ranging form the Land Ordinance of 1785, to the Homestead Act of 1862, gae broad access to frontier lands. This created an egalitarian (equal) and economically dynamic frontier. 
 - In most Latin America countries, Frontier lands were allocated to elites, making such people even more powerful. 
 
+Though there was a gradual drift toward greater political rights, it was only in the 1990s that most Latin American countries became democracies, and even then, they remain mired in instability, accompanied by mass repression and murder. 
+
 ## Making a billion or two
 
 
