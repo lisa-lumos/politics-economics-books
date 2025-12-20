@@ -110,6 +110,10 @@ If you are a Mexican entrepreneur, entry barriers will stand in your way: expens
 There have been challenges to Slim's Telmex monopoly, but they have not been successful. They can use "appeal for protection" to argue that a particular low doesn't apply to them. Rather than protecting people's rights, it provides a loophole in equality before the law. 
 
 ## Toward a theory of world inequality
+Rich countries typically have governments that do not arbitrarily arrest or harass residents. On the contrary, the governments provide services (education, healthcare, roads, law, order, etc). The citizens vote in elections, and have some voice in teh political direction their countries take. 
+
+
+
 
 
 # 2. Theories that don't work
