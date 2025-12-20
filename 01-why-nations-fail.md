@@ -99,7 +99,15 @@ Globalization made the large open spaces of the Americas (the open frontiers) va
 Though there was a gradual drift toward greater political rights, it was only in the 1990s that most Latin American countries became democracies, and even then, they remain mired in instability, accompanied by mass repression and murder. 
 
 ## Making a billion or two
+US: Bill Gates, as the world's richest person, and the founder of one of the most technologically innovative companies. Microsoft abused monopoly power by tieing its Web browser to its Windows OS, got its wings clipped by the Federal Trader Commission. 
 
+Mexico: Carlos Slim, the other richest men, did not make his money by innovation. Hi acquired Telmex, making a hugely profitable public telecommunications monopoly his own monopoly. He made his money in the Mexican economy thanks to his political connections. 
+
+If you are a Mexican entrepreneur, entry barriers will stand in your way: expensive licenses, red tapes, politicians and incumbents stopping you, difficulty of getting funding, etc. These barriers, depending on who you know and who you can bribe, can be either:
+1. your enemy and keep you out of lucrative areas,
+2. your greatest friend, keeping your competitors at bay. 
+
+There have been challenges to Slim's Telmex monopoly, but they have not been successful. They can use "appeal for protection" to argue that a particular low doesn't apply to them. Rather than protecting people's rights, it provides a loophole in equality before the law. 
 
 ## Toward a theory of world inequality
 
