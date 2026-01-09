@@ -110,10 +110,22 @@ If you are a Mexican entrepreneur, entry barriers will stand in your way: expens
 There have been challenges to Slim's Telmex monopoly, but they have not been successful. They can use "appeal for protection" to argue that a particular low doesn't apply to them. Rather than protecting people's rights, it provides a loophole in equality before the law. 
 
 ## Toward a theory of world inequality
-Rich countries typically have governments that do not arbitrarily arrest or harass residents. On the contrary, the governments provide services (education, healthcare, roads, law, order, etc). The citizens vote in elections, and have some voice in teh political direction their countries take. 
+Rich countries typically have governments that do not arbitrarily arrest or harass residents. On the contrary, the governments provide services (education, healthcare, roads, law, order, etc). The citizens vote in elections, and have some voice in the political direction their countries take. 
+
+The great differences in world inequality are evident to everyone, which drive people to cross the Rio Grande or the Mediterranean sea illegally, to have the chance to experience rich-country living standards and opportunities. 
 
 
+Nogales, as  in the rest of northern Mexico, benefits from trade with the US. Its relative prosperity came from US-based manufacturing plants (comes from outside of Mexico). 
 
+The average citizen in the US is 7 times prosperous as that in Mexico, 10 times as Peru, 20 times as that of subSaran Africa, and 40 times of those living in the poorest African countries. And it is not just the US. There is a small and growing list of rich countries - mostly in Europe and North America, joined by Australia, New Zealand, Japan, Singapore, South Korea, and Taiwan. 
+
+Political institutions determines how political process works, political process determines what economic institutions people live under, Economic institutions shape economic incentives (become educated, save and invest, innovate, adopt new tech, etc). 
+
+For example, political institutions -> determines citizens' ability to control/influence politicians -> determines whether politicians are citizens' agents, or abuse the power, or amass their own fortunes and be detrimental to citizens' fortunes. 
+
+Political institutions include, but are not limited to: written constitutions, and whether the society is a democracy. 
+
+Individual talent matters everywhere, but even that needs an institutional framework, to transform it into a positive force. 
 
 
 # 2. Theories that don't work
