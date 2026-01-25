@@ -127,23 +127,17 @@ Political institutions include, but are not limited to: written constitutions, a
 
 Individual talent matters everywhere, but even that needs an institutional framework, to transform it into a positive force. The talents in the US are sure that there is no risk of a dictator taking power, and changing the rules of the game, expropriating their wealth, imprisoning them, or threatening their lives and livelihoods. They also made sure that nothing could warp the government in an economically disastrous direction, because political power was limited and distributed broadly. 
 
+Different patterns of institutions today are deeply rooted in the past, because once society gets organized in a particular way, this tends to persist. This persistence, and the forces that create it, also explains why it is so difficult to remove world inequality, and to make poor countries prosperous. 
 
-
-
-
-
-
-
-
-
-
-
+There is no necessity for a society to develop/adapt the institutions that are best for economic growth, or the welfare of its citizens, because other institutions may be even better for those who control politics and political institutions. 
 
 # 2. Theories that don't work
-## THE LAY OF THE LAND
-## THE GEOGRAPHY HYPOTHESIS
-## THE CULTURE HYPOTHESIS
-## THE IGNORANCE HYPOTHESIS
+## The lay of the land
+
+
+## The geography hypothesis
+## The culture hypothesis
+## The ignorance hypothesis
 
 # 3. The making of prosperity and poverty
 ## The economics of the 38th parallel
