@@ -125,7 +125,7 @@ For example, political institutions -> determines citizens' ability to control/i
 
 Political institutions include, but are not limited to: written constitutions, and whether the society is a democracy. 
 
-Individual talent matters everywhere, but even that needs an institutional framework, to transform it into a positive force. The talents in the US are sure that there is no risk of a dictator taking power, and changing the rules of the game, expropriating their wealth, imprisoning them, or threatening their lives and livelihoods. They also made sure that nothing could warp the government in an economically disastrous direction, because political power was limited and distributed broadly. 
+Individual talent matters everywhere, but even that needs an institutional framework, to transform it into a positive force. The talents in the US are sure that there is no risk of a dictator taking power, and changing the rules of the game, expropriating their wealth, imprisoning them, or threatening their lives and livelihoods. They also made sure that no "interest in society" could warp the government in an economically disastrous direction, because political power was limited and distributed broadly. 
 
 Different patterns of institutions today are deeply rooted in the past, because once society gets organized in a particular way, this tends to persist. This persistence, and the forces that create it, also explains why it is so difficult to remove world inequality, and to make poor countries prosperous. 
 
