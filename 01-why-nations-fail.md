@@ -132,15 +132,28 @@ Different patterns of institutions today are deeply rooted in the past, because 
 There is no necessity for a society to develop/adapt the institutions that are best for economic growth, or the welfare of its citizens, because other institutions may be even better for those who control politics and political institutions. 
 
 # 2. Theories that don't work
-## The lay of the land
+## The lay of the land (aka, the situation)
 The first country to experience sustained economic growth was England. Growth emerged slowly in the 1750s as the Industrial Revolution, based on major technology breakthroughs, and their application in industry took root. This industrialization was followed in most of Western Europe and the US. English prosperity also spread rapidly to Britain's settler colonies (Canada, Australia, New Zealand). 
 
 If you make a list of the richest and poorest 30 countries in the world today, and went back 50/100/150 years, the lists wouldn't be greatly different. 
 
-In the Americas, not just the US and Canada are richer than Latin America; there is also a definite and persistent divide between the rich and poor nations within Latin America. 
+In the Americas, not just the US and Canada are richer than Latin America; there is also a definite and persistent divide between the rich and poor nations within Latin America. The same list of rich/poor countries are the same back 50/100/150 years. 
 
+Another observation: Middle East. Oil-rich countries rankings change dramatically with oil price - if oil price fell, they quickly fall off the rich countries list. Middle Eastern countries without oil are all poor, as poor as those in Central America, but not as poor as those in sub-Saharan Africa.   
 
+The gaps in prosperity mostly started around the 1770s. Until the 1750s, the gaps between rich and poor countries were much smaller, and the ranking were dramatically different VS later. 
 
+Many nations have experienced several decades of rapid growth (much of East Asia since the WW2, and more recently, China).
+
+Also many of these subsequently saw that growth go into reverse (Argentina, The Soviet Union). 
+
+Questions:
+- What explains these major differences in poverty/prosperity, and the patterns of growth?
+- Why did Wester European nations and their colonial offshoots start growing in the 1800s, and maintained the growth?
+- What explains the persistent ranking of inequality within the Americas?
+- Why have sub-Saharan African and Middle Eastern nations failed to achieve the type of economic growth seen in Western Europe, while much of East Asia has experienced breakneck rates of economic growth?
+
+Most hypotheses that social scientists have proposed for the origins of poverty/prosperity are not convincing. 
 
 ## The geography hypothesis
 ## The culture hypothesis
