@@ -133,6 +133,13 @@ There is no necessity for a society to develop/adapt the institutions that are b
 
 # 2. Theories that don't work
 ## The lay of the land
+The first country to experience sustained economic growth was England. Growth emerged slowly in the 1750s as the Industrial Revolution, based on major technology breakthroughs, and their application in industry took root. This industrialization was followed in most of Western Europe and the US. English prosperity also spread rapidly to Britain's settler colonies (Canada, Australia, New Zealand). 
+
+If you make a list of the richest and poorest 30 countries in the world today, and went back 50/100/150 years, the lists wouldn't be greatly different. 
+
+In the Americas, not just the US and Canada are richer than Latin America; there is also a definite and persistent divide between the rich and poor nations within Latin America. 
+
+
 
 
 ## The geography hypothesis
