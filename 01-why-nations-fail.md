@@ -156,6 +156,20 @@ Questions:
 Most hypotheses that social scientists have proposed for the origins of poverty/prosperity are not convincing. 
 
 ## The geography hypothesis
+One widely accepted theory: the geography hypothesis, which claims geographical differences (climates) causes the rich and poor divide among countries. Many poor countries (those of Africa, Central America, South Asia) are between the tropics of Caner and Capricorn. Rich nations tend to be in temperate latitudes. 
+
+They claim that people in tropical areas tend to be lazy, so they are not creative, and tend to be ruled by dictators. Or tropical diseases; or tropical soils not productive enough. 
+
+However, it cannot explain the differences between the north of and south of Nogales, NOrth and South Korea, or East and West Germany. 
+
+History shows there is no simple or enduring connection between climate/geography and economic success. At the conquest of the Americas by Columbus, the tropical areas had the great Aztec and Inca civilizations (politically centralized and complex, built roads, provided famine relief, had money and writing); while the temperate climate regions had only Stone Age civilizations. The former were much richer than the latter. 
+
+The greater riches in the US and Canada represent a stark reversal of fortune when the Europeans arrived, which had nothing to do with climate. 
+
+
+
+
+
 ## The culture hypothesis
 ## The ignorance hypothesis
 
