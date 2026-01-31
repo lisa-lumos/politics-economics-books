@@ -164,9 +164,11 @@ However, it cannot explain the differences between the north of and south of Nog
 
 History shows there is no simple or enduring connection between climate/geography and economic success. At the conquest of the Americas by Columbus, the tropical areas had the great Aztec and Inca civilizations (politically centralized and complex, built roads, provided famine relief, had money and writing); while the temperate climate regions had only Stone Age civilizations. The former were much richer than the latter. 
 
-The greater riches in the US and Canada represent a stark reversal of fortune when the Europeans arrived, which had nothing to do with climate. 
+The greater riches in the US and Canada represent a stark reversal of fortune when the Europeans arrived, which had nothing to do with climate. This reversal was not confined to the Americas. People in South Asia (India subcontinent) and in China were more prosperous, than those in many other parts of Asia Australia and New Zealand. This, too, was reversed - South Korea, Singapore, Japan emerging as the richest nations in Asia, and Australia and New Zealand the same. South Africa is now one of the most prosperous nations in sub-Saharan Africa - it used to be a sparsely populated and remote area. 
 
+History this leaves little doubt that there is no simple connection between a tropical location, and economic success. 
 
+Tropical diseases cause much suffering, but they are not the reason Africa is poor. Disease is largely a consequence of poverty. England in 1800s was also unhealthy, but the government gradually invested in clean water, health service, etc. Improved health were not the cause of England's economic success, but th one of the fruits of its previous political and economic changes. 
 
 
 
