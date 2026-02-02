@@ -170,9 +170,14 @@ History this leaves little doubt that there is no simple connection between a tr
 
 Tropical diseases cause much suffering, but they are not the reason Africa is poor. Disease is largely a consequence of poverty. England in 1800s was also unhealthy, but the government gradually invested in clean water, health service, etc. Improved health were not the cause of England's economic success, but th one of the fruits of its previous political and economic changes. 
 
-
-
 ## The culture hypothesis
+Nogales example. North/South Korea example - While culture is very different between them today, it played no role in causing the diverging economic fortunes of these two nations. Just as in Nogales, what matters is the border. The culture differences are not the cause of prosperity, but rather a consequence. 
+
+The reason that Kongolese did not adopt superior technology was because they lacked incentives to do so - they faced a high risk of all their output being expropriated and taxed by the all-powerful king. The king did not have incentives to improve agricultural productivity - exporting slaves was so much more profitable, which also makes Kongolese's continuous existence held by a thread. 
+
+
+
+
 ## The ignorance hypothesis
 
 # 3. The making of prosperity and poverty
