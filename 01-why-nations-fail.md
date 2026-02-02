@@ -175,8 +175,15 @@ Nogales example. North/South Korea example - While culture is very different bet
 
 The reason that Kongolese did not adopt superior technology was because they lacked incentives to do so - they faced a high risk of all their output being expropriated and taxed by the all-powerful king. The king did not have incentives to improve agricultural productivity - exporting slaves was so much more profitable, which also makes Kongolese's continuous existence held by a thread. 
 
+Canada and US were English colonies, but so were Sierra Leone and Nigeria. The variation in prosperity within former English colonies is as great as that in the entire world. The English legacy is not the reason for the success of North America. 
 
+Western Europe and North America are filled primarily by European descendants, and they are the most prosperous parts of the world. However, a greater proportion of the Argentina and Uruguay's population are European descendants, yet their economic performance is not good. Japan and Singapore barely has European descendants, yet they are as prosperous as Western Europe. 
 
+China, despite many imperfections in its economic and political system, has been the most rapidly growing nation of the past 30 yrs. Chinese poverty until Mao Zedong's death had nothing to do with Chinese culture - it was due to the disastrous way Mao organized the economy and conducted politics. 
+- In the 1950s, he promoted the Great Leap Forward, a drastic industrialization policy that lead to mass starvation and famine; 
+- In the 1960s, he propagated the Cultural Revolution, which led to the mass persecution of intellectuals and educated people - anyone whose party loyalty might be doubted. This again led to terror and huge waste of the society's talent and resources
+
+In the same way, current Chinese growth has nothing to do with Chinese values or changes in Chinese culture - it results from a process of economic transformation unleashed by the reforms implemented by Deng Xiaoping and his allies, who, after Mao's death, gradually abandoned socialist economic policies and institutions, first in agriculture, and then in industry. 
 
 ## The ignorance hypothesis
 
