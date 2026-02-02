@@ -8,6 +8,10 @@ Ernest Hemingways' famous line: How did you go bankrupt? - Two ways. Gradually, 
 That's how confidence - the lifeblood of our economy - disappears: gradually, then suddenly. 
 
 # Reader's notes on the people involved
+# Prologue
+**Charles Mitchell**: National City Bank, the largest in the country. 
+
+1929-10, the stock market closed with a sharp drop of 13%, after a week of downward convulsions. 
 
 
 
