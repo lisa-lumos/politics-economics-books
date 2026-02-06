@@ -31,6 +31,30 @@ The three men don't think the market was likely to rebound, and thought about ho
 
 Next day morning, Mitchell told Rentschler that he decided to personally borrow 12 mil (a few times of his net worth), and use it to buy National City stock from the bank. Rentschler pleaded him to not do it. If the stock kept falling, Mitchell could be wiped out, along with his family. Also, if rival traders were to discover that Mitchell was personally bailing out his own company, all hell would break loose. 
 
+The 1920s saw the birth of the modern consumer economy that we take for granted today. As millions of Americans left farms and small towns, and followed higher paying jobs to metros, they created markets - they bought cars, radios, dishwashers, products that nobody knew they needed, but made life much better. But the greatest product, the one that made all others possible, was credit. Buy now, pay later. 
+
+Taking notice of this cultural shift, banks automated the process for small merchants. Wall street went one step further, and started offering stock on credit - "on margin". Americans opened margin accounts, putting up ~15% of of a stock purchase, and borrowing the rest. When the market went up, the returns felt like free money. Borrowing became a habit, born along with optimism. So long as faith in tomorrow was maintained, debts could be rolled over endlessly into the future. 
+
+Individuals became spectacularly rich. Some senior executives of America's biggest companies had salaries/bonuses of ~50mil in todays dollar. For the first time, wealthy men joined ranks in visibility, and cast as visionaries, symbols of success. 
+
+Underlying imbalances in 1920s: 
+- Tech made farming much more efficient, farm workers and their towns fell into economic distress. 
+- Wall street enjoyed its privileged realms; Business make its own rules. 
+- Government like Calvin Coolidge believed American people could solve their own problems. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
