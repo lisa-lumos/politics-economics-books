@@ -42,7 +42,7 @@ Underlying imbalances in 1920s:
 - Wall street enjoyed its privileged realms; Business make its own rules. 
 - Government like Calvin Coolidge believed American people could solve their own problems. 
 
-
+Lengthy, uninterrupted booms, like the one in the 1920s, produce a collective delusion. And at the top of industry/government during any mania, are people who are often no different than anyone else - flawed, self-interested, complicated. They push events forward, sometimes boldly/blindly, often without fully grasping the consequences of their actions.  
 
 
 
