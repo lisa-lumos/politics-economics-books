@@ -44,6 +44,28 @@ Underlying imbalances in 1920s:
 
 Lengthy, uninterrupted booms, like the one in the 1920s, produce a collective delusion. And at the top of industry/government during any mania, are people who are often no different than anyone else - flawed, self-interested, complicated. They push events forward, sometimes boldly/blindly, often without fully grasping the consequences of their actions.  
 
+The almost singular throughline behind every major financial crisis is one thing: debt. If we envision the future as a land of ever-expanding opportunity and affluence, why shouldn't we marshal some of those resources for use today? That's what debt does. It draws the wealth of tomorrow into the present. Problems arise when we get greedy and take too much. Nobody knows for sure where the line is. 
+
+# 1. 1929-02-01
+**Thomas Lamont**: Senior partner of J.P. Morgan &  Co., effectively ran the bank. Technically second in hand to Jack Morgan. Going to Paris France for conference on German war reparations. Thinks whatever might be unaffordable today can be structured into a a manageable schedule of future payments. 
+
+**Jack Morgan**: Lacked his father John Pierpont Morgan Sr's authority. 
+
+**John Pierpont Morgan**: The legendary Morgan. Under his rule, the House of Morgan helped modernize the American economy, transforming the sprawling remote land of relatively small enterprises that characterized 19th century capitalism, into the mighty corporate structures that dominated the 20th century. 
+
+That American business leaders now bore the responsibility for such diplomacy, was emblematic of just how completely commerce had eclipsed politics at the driving force of 1920s. 
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
