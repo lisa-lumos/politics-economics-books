@@ -51,14 +51,22 @@ The almost singular throughline behind every major financial crisis is one thing
 
 **Jack Morgan**: Lacked his father John Pierpont Morgan Sr's authority. 
 
-**John Pierpont Morgan**: The legendary Morgan. Under his rule, the House of Morgan helped modernize the American economy, transforming the sprawling remote land of relatively small enterprises that characterized 19th century capitalism, into the mighty corporate structures that dominated the 20th century. 
+**John Pierpont Morgan**: The legendary Morgan. Under his rule, the House of Morgan helped modernize the American economy, transforming the sprawling remote land of relatively small enterprises that characterized 19th century capitalism, into the mighty corporate structures that dominated the 20th century. He asked Thomas Lamont to be a partner. 
 
 That American business leaders now bore the responsibility for such diplomacy, was emblematic of just how completely commerce had eclipsed politics at the driving force of 1920s. 
 
+Before the US had a central bank, in 1907, a bank run happened, J.P. Morgan was the most powerful banker of the time. He personally intervened to stabilize the banking system. He:
+- Organized a coalition of banks to pool resources.
+- Provided liquidity to troubled institutions to prevent them from collapsing.
+- Negotiated mergers and takeovers to rescue failing banks.
 
+His actions restored confidence in the banking system, and stopped the panic from spreading further. This highlighted the need for a central bank in the U.S., eventually leading to the creation of the Federal Reserve in 1913.
 
+**Oris/Mantis Van Sweringen brothers**: partnership with J.P. Morgan. Fearless dealmakers. 
 
+Investment trust: A trust would raise money from the public, buy a basket of stocks/bonds, and finance itself with the new layers of preferred shares/debt. Then a new trust might be launched to buy shares of the first - piling more leverage atop what was already there. (leverage amplified)
 
+Investors weren't buying companies so much as they were buying reputations. And for a time, that faith was enough: The most fashionable  trusts doubled or tripled in price, often trading at extraordinary premiums above the worth of the assets aside. 
 
 
 
