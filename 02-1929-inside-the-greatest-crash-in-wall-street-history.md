@@ -62,13 +62,13 @@ Before the US had a central bank, in 1907, a bank run happened, J.P. Morgan was 
 
 His actions restored confidence in the banking system, and stopped the panic from spreading further. This highlighted the need for a central bank in the U.S., eventually leading to the creation of the Federal Reserve in 1913.
 
-**Oris/Mantis Van Sweringen brothers**: partnership with J.P. Morgan. Fearless dealmakers. 
+**Oris/Mantis Van Sweringen brothers**: owners of Alleghany, partnership with J.P. Morgan. Fearless dealmakers. 
 
 Investment trust: A trust would raise money from the public, buy a basket of stocks/bonds, and finance itself with the new layers of preferred shares/debt. Then a new trust might be launched to buy shares of the first - piling more leverage atop what was already there. (leverage amplified)
 
 Investors weren't buying companies so much as they were buying reputations. And for a time, that faith was enough: The most fashionable  trusts doubled or tripled in price, often trading at extraordinary premiums above the worth of the assets aside. 
 
-
+To the general public, Alleghany shares were priced at $35, which Lamont knew would sell easily in the rising stock market. Morgan partners, however, were able to buy them at a secret price of $20 a share. Lamont went around to send telegrams to "friends of the firm", such as former President Coolidge, Navy Secret Charles, Adams, Chase National Bank Chairman Albert Wiggin,aviator Charles Lindbergh, General John Pershing, Charles Mitchell, Bernard Baruch, John Raskob, etc.
 
 
 
