@@ -70,8 +70,15 @@ Investors weren't buying companies so much as they were buying reputations. And 
 
 To the general public, Alleghany shares were priced at $35, which Lamont knew would sell easily in the rising stock market. Morgan partners, however, were able to buy them at a secret price of $20 a share. Lamont went around to send telegrams to "friends of the firm", such as former President Coolidge, Navy Secret Charles, Adams, Chase National Bank Chairman Albert Wiggin,aviator Charles Lindbergh, General John Pershing, Charles Mitchell, Bernard Baruch, John Raskob, etc.
 
+Lamont had another audacious piece of business on the ship - merger between ITT, RCA and Western Union - a massive monopoly, that was likely illegal under an antitrust law passed in 1927. 
 
+**Owen Young**: The president of General Electric - the parent of RCA. 
 
+**David Sarnoff**: RCA's leader. 
+
+Both of the companies were clients of the House of Morgan. 
+
+# 2. 1929-02-14
 
 
 
