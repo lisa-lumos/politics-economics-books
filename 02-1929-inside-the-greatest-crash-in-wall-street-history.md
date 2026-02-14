@@ -79,6 +79,14 @@ Lamont had another audacious piece of business on the ship - merger between ITT,
 Both of the companies were clients of the House of Morgan. 
 
 # 2. 1929-02-14
+A few weeks earlier, Mitchell had been appointed to the board of the Federal Reserve Bank of New York, which was barely 15 yrs old. 
+
+The way the Fed had been set up was the result of a political compromises - 
+1. Big-city industrialists/financiers, who believed that the country needed a strong national bank, to set borrowing rates, direct capital flows, and steady the economy during panics/busts
+2. Representatives of small towns/farmers, who feared the centralization of power. 
+
+The Fed had 12 regional banks that each had their own boards, and set their own policies, overseen by the Federal Reserve Board in Washington. The reality then: The New York Fed, due to its proximity to Wall Street, practically ran the entire institution. 
+
 
 
 
