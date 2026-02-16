@@ -87,9 +87,9 @@ The way the Fed had been set up was the result of a political compromises -
 
 The Fed had 12 regional banks that each had their own boards, and set their own policies, overseen by the Federal Reserve Board in Washington. The reality then: The New York Fed, due to its proximity to Wall Street, practically ran the entire institution. 
 
+**Benjamin Strong**: Governor of the New York Fed. Formidable player in world affairs. Helped stabilize the economy and begin the greatest growth period it had ever seen. The target of political attacks from rural-state Democrats in Washington. Recommended Mitchell into the New York Fed. 
 
-
-
+Mitchell had been a public/private critic of interest rate decisions by the Fed. Strong put Mitchell on the board to muzzle him, to keep his enemy close. Because Strong was worried about the political status of the young and not fully-trusted-by-the-public Fed. 
 
 
 
