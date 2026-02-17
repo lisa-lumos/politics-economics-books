@@ -66,7 +66,7 @@ His actions restored confidence in the banking system, and stopped the panic fro
 
 Investment trust: A trust would raise money from the public, buy a basket of stocks/bonds, and finance itself with the new layers of preferred shares/debt. Then a new trust might be launched to buy shares of the first - piling more leverage atop what was already there. (leverage amplified)
 
-Investors weren't buying companies so much as they were buying reputations. And for a time, that faith was enough: The most fashionable  trusts doubled or tripled in price, often trading at extraordinary premiums above the worth of the assets aside. 
+Investors weren't buying companies so much as they were buying reputations. And for a time, that faith was enough: The most fashionable  trusts doubled or tripled in price, often trading at extraordinary premiums above the worth of the assets inside. 
 
 To the general public, Alleghany shares were priced at $35, which Lamont knew would sell easily in the rising stock market. Morgan partners, however, were able to buy them at a secret price of $20 a share. Lamont went around to send telegrams to "friends of the firm", such as former President Coolidge, Navy Secret Charles, Adams, Chase National Bank Chairman Albert Wiggin,aviator Charles Lindbergh, General John Pershing, Charles Mitchell, Bernard Baruch, John Raskob, etc.
 
@@ -85,7 +85,8 @@ The way the Fed had been set up was the result of a political compromises -
 1. Big-city industrialists/financiers, who believed that the country needed a strong national bank, to set borrowing rates, direct capital flows, and steady the economy during panics/busts
 2. Representatives of small towns/farmers, who feared the centralization of power. 
 
-The Fed had 12 regional banks that each had their own boards, and set their own policies, overseen by the Federal Reserve Board in Washington. The reality then: The New York Fed, due to its proximity to Wall Street, practically ran the entire institution. 
+The Fed had 12 regional banks that each had their own board
+s, and set their own policies, overseen by the Federal Reserve Board in Washington. The reality then: The New York Fed, due to its proximity to Wall Street, practically ran the entire institution. 
 
 **Benjamin Strong**: Governor of the New York Fed. Formidable player in world affairs. Helped stabilize the economy and begin the greatest growth period it had ever seen. The target of political attacks from rural-state Democrats in Washington. Recommended Mitchell into the New York Fed. 
 
