@@ -186,6 +186,27 @@ China, despite many imperfections in its economic and political system, has been
 In the same way, current Chinese growth has nothing to do with Chinese values or changes in Chinese culture - it results from a process of economic transformation unleashed by the reforms implemented by Deng Xiaoping and his allies, who, after Mao's death, gradually abandoned socialist economic policies and institutions, first in agriculture, and then in industry. 
 
 ## The ignorance hypothesis
+The ignorance hypothesis asserts that world inequality exists, because we or our rulers do not know how to make poor countries rich. This idea is the one held by most economists. 
+
+Dictators need to use the economic policies to buy political support, and sustain his undemocratic regime.
+
+After all, if ignorance were the problem, well-meaning leaders would quickly learn what types of policies increased their citizens' incomes and welfare, and would gravitate toward those policies. 
+
+It wasn't the differences in knowledge or intentions, rather, it was the differences in the institutional constraints the countries' presidents and elites were facing.  
+
+Leaders of African nations that have languished over the last half century under insecure property rights and economic institutions, impoverishing much of their population, did not allow this to happen because they thought it was good politics - they did so, because they could get away with it, and enrich themselves at the expense of the rest, or because they thought it was good politics, a way of keeping themselves in power, by buying the support of crucial groups or elites. 
+
+As with Nkrumah, his economic policies were adopted, not because he was "ignorant" and believed these policies were good. The policies were chosen, because they enable Busia to transfer resources to politically powerful groups, for example in urban areas, who needed to be kept contented. Price controls squeezed agriculture, delivering cheap food to the urban constituencies, and generating revenues to finance government spending. 
+
+The main obstacle to the adoption of policies that would reduce market failures and encourage economic growth, is not the ignorance of politicians, but the incentives and constraints they face, from the political and economic institutions in their societies. 
+
+This hypothesis cannot explain:
+- Why some nations, such as Mexico and Peru, but not the US or England, adopted institutions and policies that would impoverish the majority of their citizens
+- Why almost al sub-Saharan Africa and most Central America are so much poorer than Western Europe or East Asia. 
+
+
+
+
 
 # 3. The making of prosperity and poverty
 ## The economics of the 38th parallel
