@@ -204,6 +204,10 @@ This hypothesis cannot explain:
 - Why some nations, such as Mexico and Peru, but not the US or England, adopted institutions and policies that would impoverish the majority of their citizens
 - Why almost al sub-Saharan Africa and most Central America are so much poorer than Western Europe or East Asia. 
 
+When nations break out of institutional patterns condemning them to poverty, and manage to embark on a path to economic growth, this is not because their ignorant leaders suddenly have become better informed, or less self-interested, or because they have received advice from better economists. 
+
+China, for example, is one of the countries that made the switch from economic policies that made the switch from economic policies that caused poverty and the starvation of millions, to those encouraging economic growth. But, this did not happen because the CCP finally understood that the collective ownership of agricultural land and industry created terrible economic incentives. Instead, Deng Xiaoping and his allies, who were no self-interested than their rivals, but had different interests and political objectives, defeated their powerful opponents in the CCP, and masterminded a political revolution, radically changing the leadership and direction of the party. Their economic reforms, which created market incentives in agriculture, and then subsequently in industry, followed from this political revolution. It was politics that determined the switch from communism and toward market incentives in China, the better advice or better understanding of how the economy worked. 
+
 
 
 
