@@ -208,9 +208,9 @@ When nations break out of institutional patterns condemning them to poverty, and
 
 China, for example, is one of the countries that made the switch from economic policies that made the switch from economic policies that caused poverty and the starvation of millions, to those encouraging economic growth. But, this did not happen because the CCP finally understood that the collective ownership of agricultural land and industry created terrible economic incentives. Instead, Deng Xiaoping and his allies, who were no self-interested than their rivals, but had different interests and political objectives, defeated their powerful opponents in the CCP, and masterminded a political revolution, radically changing the leadership and direction of the party. Their economic reforms, which created market incentives in agriculture, and then subsequently in industry, followed from this political revolution. It was politics that determined the switch from communism and toward market incentives in China, the better advice or better understanding of how the economy worked. 
 
+What is really needed is an explanation for why poor nations "get it wrong". Poor countries are poor, because those who have power to make choices that create poverty. They get it wrong not by mistake or ignorance, but on purpose. 
 
-
-
+To understand this, you need to go beyond economics and instead, study how decisions actually get made, who gets to make them, and why those people decide to do what they do. This is the study of politics, and political processes. 
 
 # 3. The making of prosperity and poverty
 ## The economics of the 38th parallel
