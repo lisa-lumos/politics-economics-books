@@ -85,14 +85,15 @@ The way the Fed had been set up was the result of a political compromises -
 1. Big-city industrialists/financiers, who believed that the country needed a strong national bank, to set borrowing rates, direct capital flows, and steady the economy during panics/busts
 2. Representatives of small towns/farmers, who feared the centralization of power. 
 
-The Fed had 12 regional banks that each had their own board
-s, and set their own policies, overseen by the Federal Reserve Board in Washington. The reality then: The New York Fed, due to its proximity to Wall Street, practically ran the entire institution. 
+The Fed had 12 regional banks that each had their own boards, and set their own policies, overseen by the Federal Reserve Board in Washington. The reality then: The New York Fed, due to its proximity to Wall Street, practically ran the entire institution. 
 
 **Benjamin Strong**: Governor of the New York Fed. Formidable player in world affairs. Helped stabilize the economy and begin the greatest growth period it had ever seen. The target of political attacks from rural-state Democrats in Washington. Recommended Mitchell into the New York Fed. 
 
 Mitchell had been a public/private critic of interest rate decisions by the Fed. Strong put Mitchell on the board to muzzle him, to keep his enemy close. Because Strong was worried about the political status of the young and not fully-trusted-by-the-public Fed. 
 
+In a speech Mitchell delivered on on New Year's Eve, he predicted that the stock market will continue to rise, due to confidence that American businesses is destined to grow rapidly. 
 
+Within a month, The Federal Reserve Board, fearing that a speculative bubble was taking hold, issued an advisory to the Fed's national banks, discouraging them from making loans to support stock speculation, particularly, stock bought on margin. The Fed had made their position clear: Speculation by margin debt would not lead to sustainable economic growth, and needed to be discouraged. 
 
 
 
