@@ -95,12 +95,15 @@ In a speech Mitchell delivered on on New Year's Eve, he predicted that the stock
 
 Within a month, The Federal Reserve Board, fearing that a speculative bubble was taking hold, issued an advisory to the Fed's national banks, discouraging them from making loans to support stock speculation, particularly, stock bought on margin. The Fed had made their position clear: Speculation by margin debt would not lead to sustainable economic growth, and needed to be discouraged. 
 
+The persuasion did not work - everyone seems committed in speculating the stock market. 
 
+The New York Fed board voted to call Washington for permission to raise the discount rate from 5% to 6%, despite Mitchell arguing against it. The Fed in Washington worried that raising rates by a point would puncture the speculation, but would also slow the real economy, they did not approve the 1% increase. 
 
+2 days after the meeting, on Saturday, a flood of sell orders came in overnight on Friday, and prices dropped precipitously. There is usually no credible explanation for what makes the market soar/sink, but Mitchell thinks it was all the fault of the Fed standing against the user of borrowed funds.
 
+**Carter Glass**: Senator of Virginia, declares war on Wall Street and speculators. 
 
-
-
+# 3. 1929-02-16
 
 
 
