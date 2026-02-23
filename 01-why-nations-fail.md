@@ -220,9 +220,17 @@ When the brothers separated by the 38th parallel met, one brother from the South
 
 The people of South Korea have living standards similar to those of Portugal and Spain. To the north, in the so-called Democratic People's Republic of Korea, or North Korea, living standards are akin to those of a sub-Saharan African country, about one 1/10 of average living standards in South Korea. Also, the average North Korean can expect to live 10 years less than his cousins south of the 38th parallel. 
 
-These striking differences are not ancient. In fact, they did not exist prior to the end of the WWII. But after 1945, the different governments in the North and the South adopted very different ways of organizing their economies. South Korea was led, and is early economic and political institutions were shaped, by the Harvard and Princeton-educated, staunchly anti-communist Syngman Rhee, with significant support from the US. South Korea was no democracy. Both Rhee and  
+These striking differences are not ancient. In fact, they did not exist prior to the end of the WWII. But after 1945, the different governments in the North and the South adopted very different ways of organizing their economies. 
 
+South Korea was led, and is early economic and political institutions were shaped, by the Harvard and Princeton-educated, staunchly anti-communist Syngman Rhee, with significant support from the US. South Korea was no democracy. Both Rhee and his successor, General Park Chung-Hee, secured their places in history as authoritarian presidents. But both governed a market economy where private property was recognized, and after 1961, Park effectively threw the weight of the state behind rapid economic growth, channeling credit and subsidies to firms that were successful. 
 
+North of the 38th parallel, Kim Il-Sung, with the help of the Soviet Union, introduced a rigid form of centrally planned economy. Private property of outlawed, and markets were banned. Freedoms were deprived not only from the marketplace, but in every aspect of North Koreans' lives - except for those who are part of the very small ruling elites around Kim Il-Sung, and later his son and successor Kim Jong-Il.  
+
+Not only did industrial production fail to take off, but North Korea experienced a collapse in agricultural productivity. Lack of private property meant that few people had incentives to invest or to exert effort to increase or even maintain productivity. The repressive regime was inimical to innovation, and the adoption of new technologies. But the elites had no intention of reforming the system. North Korea continues to stagnant economically. 
+
+Meanwhile, in the South, economic institutions encouraged investment and trade. South Korean politicians invested in education, companies were quick to take advantage of the educated population. The policies encourage investment, industrialization, exports, and the transfer of technology. South Korea quickly became one of the most rapidly growing nations in the world. 
+
+Neither culture nor geography nor ignorance can explain the divergent paths of North and South Korea. We have to look at institutions for an answer. 
 
 ## Extractive and inclusive economic institutions
 ## Engines of prosperity
