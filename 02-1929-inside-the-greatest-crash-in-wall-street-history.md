@@ -104,7 +104,12 @@ The New York Fed board voted to call Washington for permission to raise the disc
 **Carter Glass**: Senator of Virginia, declares war on Wall Street and speculators. 
 
 # 3. 1929-02-16
+**William Crapo Durant**: The titan of the flourishing automobile industry. The nation's most famous speculator. One of the richest men in America. Public criticizer of the Fed. 
 
+Saturday. Mitchell called Durant (they both think Fed was to blame on the dropping stock market), and told him that they need to do something about the Fed quickly. Mitchell was hoping that Durant might have some ideas about how to shift dynamics in Washington, because he didn't have much influence/clout there. 
 
+The last two presidents, especially Calvin Coolidge, believed in a government that did as little as possible, and Wall Street revered him for it. People called his hands-off approach "the Coolidge market". To some, it represented an abdication of authority/responsibility, but these critics were in the minority. 
+
+Herbert Hoover presidential inauguration was taking place a few weeks away, nobody knew what to expect of the new president. 
 
 
