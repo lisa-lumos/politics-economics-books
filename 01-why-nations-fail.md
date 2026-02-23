@@ -214,6 +214,16 @@ To understand this, you need to go beyond economics and instead, study how decis
 
 # 3. The making of prosperity and poverty
 ## The economics of the 38th parallel
+Within a month of Japan's August 15th unconditional surrender, Korea was divided at the 38th parallel into 2 spheres of influence. The South was administered by the US. The North, by Russia. 
+
+When the brothers separated by the 38th parallel met, one brother from the South offered some money to his brother. But his brother said: "If I go back with money, government will say, 'Give that money to us,' so keep it. ". He noticed his brother's coat was threadbare: "Take off that coat and leave it, and when you go back, wear this one, " he suggested. "I cannot do that, " his brother replied. "This is just borrowed from the government to come here. " His brother said he lived well, but he thought he looked awful, and was thin as a rake. 
+
+The people of South Korea have living standards similar to those of Portugal and Spain. To the north, in the so-called Democratic People's Republic of Korea, or North Korea, living standards are akin to those of a sub-Saharan African country, about one 1/10 of average living standards in South Korea. Also, the average North Korean can expect to live 10 years less than his cousins south of the 38th parallel. 
+
+These striking differences are not ancient. In fact, they did not exist prior to the end of the WWII. But after 1945, the different governments in the North and the South adopted very different ways of organizing their economies. South Korea was led, and is early economic and political institutions were shaped, by the Harvard and Princeton-educated, staunchly anti-communist Syngman Rhee, with significant support from the US. South Korea was no democracy. Both Rhee and  
+
+
+
 ## Extractive and inclusive economic institutions
 ## Engines of prosperity
 ## Extractive and inclusive political institutions
