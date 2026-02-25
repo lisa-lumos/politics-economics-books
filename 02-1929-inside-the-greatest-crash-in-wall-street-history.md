@@ -104,7 +104,24 @@ The New York Fed board voted to call Washington for permission to raise the disc
 **Carter Glass**: Senator of Virginia, declares war on Wall Street and speculators. 
 
 # 3. 1929-02-16
-**William Crapo Durant**: The titan of the flourishing automobile industry. The nation's most famous speculator. One of the richest men in America. Public criticizer of the Fed. 
+**William Crapo Durant**: The titan of the flourishing automobile industry. Public criticizer of the Fed. Acquired the failing brand Buick and transformed it. Assembled dozens of brands into General Motors. The nation's most famous speculator. One of the richest men in America. 
+
+Durant organized pools with other wealthy industrialists, such as Short squeeze strategy:
+1. quietly run of the price of a stock, creating an over-valuation
+2. Over-valuation attracts short sellers (sellers who borrow shares and sell, hoping to buy back cheaper later)
+3. Durant etc buy every share that the short sellers dumped on the market, causing the stock go move higher and higher
+4. Higher price squeezes the original short sellers, and new short sellers jump in, betting it will eventually fall back
+5. Short sellers are forced bo buy back shares to cover losses. 
+6. The pool unloads shares at inflated prices, profiting from the squeeze and leaving late short sellers and buyers with heavy losses
+
+Stock pool strategy (pump and dump):
+1. a group of investors combine their resources, and quietly/covertly buy up shares of a company, over weeks
+2. with the aid of a market insider (the man on the floor who specializes in trading for tha company), do a series of trades with themselves to artificially lift the price of the stock
+3. Gullible investors notice the upward trend, and jump in
+4. The pool begins selling (dumping) their shares into the rising demand, locking in profits while the public is still buying
+5. Once the pool stops supporting the price, the stock collapses, leaving late investors with losses
+
+These weren't illegal at that time, and the biggest names/institutions on Wall Street, all participated in them, including National City and J.P. Morgan. This was the privilege of power - the lure of easy profits was simply too great. It was just a question of how much they could get away with. 
 
 Saturday. Mitchell called Durant (they both think Fed was to blame on the dropping stock market), and told him that they need to do something about the Fed quickly. Mitchell was hoping that Durant might have some ideas about how to shift dynamics in Washington, because he didn't have much influence/clout there. 
 
