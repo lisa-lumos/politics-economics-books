@@ -123,10 +123,11 @@ Stock pool strategy (pump and dump):
 
 These weren't illegal at that time, and the biggest names/institutions on Wall Street, all participated in them, including National City and J.P. Morgan. This was the privilege of power - the lure of easy profits was simply too great. It was just a question of how much they could get away with. 
 
-Saturday. Mitchell called Durant (they both think Fed was to blame on the dropping stock market), and told him that they need to do something about the Fed quickly. Mitchell was hoping that Durant might have some ideas about how to shift dynamics in Washington, because he didn't have much influence/clout there. 
-
 The last two presidents, especially Calvin Coolidge, believed in a government that did as little as possible, and Wall Street revered him for it. People called his hands-off approach "the Coolidge market". To some, it represented an abdication of authority/responsibility, but these critics were in the minority. 
 
 Herbert Hoover presidential inauguration was taking place a few weeks away, nobody knew what to expect of the new president. 
+
+Saturday. Mitchell called Durant (they both think Fed was to blame on the dropping stock market), and told him that they need to do something about the Fed quickly. Mitchell was hoping that Durant might have some ideas about how to shift dynamics in Washington, because he didn't have much influence/clout there. Durant had been invited to Hoover's inauguration in Washington, and answered Mitchell that he'll do what he can. 
+
 
 
