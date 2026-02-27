@@ -129,5 +129,40 @@ Herbert Hoover presidential inauguration was taking place a few weeks away, nobo
 
 Saturday. Mitchell called Durant (they both think Fed was to blame on the dropping stock market), and told him that they need to do something about the Fed quickly. Mitchell was hoping that Durant might have some ideas about how to shift dynamics in Washington, because he didn't have much influence/clout there. Durant had been invited to Hoover's inauguration in Washington, and answered Mitchell that he'll do what he can. 
 
+# 4. 1929-03-04
+**Andrew Mellon**: Secretary of treasury. Tied into American business. Not an admirer of Wall Street, and considered it not Washington's responsibility to interfere in the private matters of buying and selling. Favors American business, lowered capital gains tax (previously taxed same rate an regular income). 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
