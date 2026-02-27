@@ -233,8 +233,36 @@ Meanwhile, in the South, economic institutions encouraged investment and trade. 
 Neither culture nor geography nor ignorance can explain the divergent paths of North and South Korea. We have to look at institutions for an answer. 
 
 ## Extractive and inclusive economic institutions
+For North Korea children, much of the education they receive at school is pure propaganda, meant to short up the legitimacy of the regime. People cannot open business as they like - there are only black markets. 
+
+Those in South Korea obtain a good education, face incentives that encourage them to exert effort and excel. They live in a market economy, built on private property. You can open any business you like. 
+
+Inclusive economic institutions allow/encourage economic participation by the great mass of people, make best use of their talents/skills, and enable individual to make their own choices. It foster economic activity, productivity growth, and economic prosperity.
+
+To be inclusive, economic institutions must feature:
+- secure private property
+- unbiased law system
+- a provision of level public services, that people can exchange/contract
+- permit the entry of new businesses
+- allow people to choose their careers
+
+Such rights must exist for the majority of people in society, not just for the elite. 
+
+Inclusive economic institutions need and use the state (the government), they do not happen naturally on their own. 
+
+Extractive economic institutions - extractive because they are designed to extract incomes/wealth from one subset of society to benefit a different subset. 
+
 ## Engines of prosperity
 ## Extractive and inclusive political institutions
+South/North Korea ended up with very different economic institutions, because different people with different interests/objectives made the decisions about how to structure society. While inclusive institutions may be good for the nation's prosperity, elites of the North Korea Communist Party will be better off by setting up institutions that are extractive. 
+
+Politics is the process, by which a society chooses the rules that will govern it. 
+
+
+
+
+
+
 ## Why not always choose prosperity?
 ## The long agony of the congo
 ## Growth under extractive political institutions
