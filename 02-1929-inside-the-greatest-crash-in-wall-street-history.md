@@ -132,7 +132,7 @@ Saturday. Mitchell called Durant (they both think Fed was to blame on the droppi
 # 4. 1929-03-04
 **Andrew Mellon**: Secretary of treasury. Tied into American business. Not an admirer of Wall Street, and considered it not Washington's responsibility to interfere in the private matters of buying and selling. Favors American business, lowered capital gains tax (previously taxed same rate an regular income). 
 
-
+Although Hoover personally didn't like Mellon, he kept him, because removing Mellon risked alienating many powerful people, whose support he would need. 
 
 
 
