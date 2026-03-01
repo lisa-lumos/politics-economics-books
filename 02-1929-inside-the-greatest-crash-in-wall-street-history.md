@@ -134,8 +134,10 @@ Saturday. Mitchell called Durant (they both think Fed was to blame on the droppi
 
 Although Hoover personally didn't like Mellon, he kept him, because removing Mellon risked alienating many powerful people, whose support he would need. 
 
+Coolidge's dislike of Hoover had only intensified once Hoover became a president, and he made no effort to assist Hoover for his Republican nomination. 
 
-
+# 5. 1929-03-05
+**Jesse Livermore**: Wall Street trader. Reckless speculator. Notorious for short selling. Understands how to use the press for his benefit. Graced the cover of *Time* Magazine. 
 
 
 
