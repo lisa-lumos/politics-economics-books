@@ -137,11 +137,11 @@ Although Hoover personally didn't like Mellon, he kept him, because removing Mel
 Coolidge's dislike of Hoover had only intensified once Hoover became a president, and he made no effort to assist Hoover for his Republican nomination. 
 
 # 5. 1929-03-05
-**Jesse Livermore**: Wall Street trader. Reckless speculator. Notorious for short selling. Understands how to use the press for his benefit. Graced the cover of *Time* Magazine. 
+**Jesse Livermore**: self-educated Wall Street trader, celebrity. Reckless speculator. Notorious for short selling. Understands how to use the press for his benefit. Graced the cover of *Time* Magazine. Lived a discreet life. Did a few pools with William Durant. 
 
+Livermore invited some Wall Street press members to his office, and provided a stock tip: cotton prices will rise. Livermore was hoping that investors would rush into the commodity, causing its price to rise, and giving him a big gain. This turned out to not work, because people were skeptical about the market, after 5 years of rising stock market. Indicating it was time for short selling again.
 
-
-
+**Bernard Baruch**: Livermore's good friend. A short-selling specialist. Wary of the market in 1929, when it continued to climb. 
 
 
 
