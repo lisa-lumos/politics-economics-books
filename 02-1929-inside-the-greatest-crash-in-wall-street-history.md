@@ -143,10 +143,16 @@ Livermore invited some Wall Street press members to his office, and provided a s
 
 **Bernard Baruch**: Livermore's good friend. A short-selling specialist. Wary of the market in 1929, when it continued to climb. 
 
+# 6. 1929-03-26
+The Fed met again about whether to raise interest rates, which cased a landslide of selling.
 
+To stop the market from eating itself alive, Mitchell said publicly via an interview, that National City Bank would try to end the panic by providing loans as necessary, no questions asked - exactly what the Washington Fed board had publicly warned against. 
 
+Mitchell's quote made the panic to subside, and the speculators returned. In the view of the Street, Mitchell had become an overnight hero. 
 
+Despite its public silence, the Washington Federal Reserve was apoplectic, thinking Mitchell's interview started up speculative activity anew. The board members sent Mitchell a letter to formally explain himself. 
 
+Carter Glass would never forget/forgive what Mitchell did.
 
 
 
