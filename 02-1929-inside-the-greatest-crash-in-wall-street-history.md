@@ -155,7 +155,14 @@ Despite its public silence, the Washington Federal Reserve was apoplectic, think
 Carter Glass would never forget/forgive what Mitchell did.
 
 # 7. 1929-03-29
+The news on the merger of RCA, Western Union and ITT has leaked. 
 
+RCA, held patients on innovations that had yet to be exploited (including TV), was the glamour stock of teh 1920s, its shares the most heavily traded on the Exchange. Investors think it represented the future. It potential seemed limitless, as its stock price. 
+
+One major obstacle of the merger was the White Act 1927, which prohibited monopolies involving communications companies:
+- Young believed competition in communications was counterproductive, because it leds to duplication of plants/equipments. He saids so on all the business he controlled. 
+- To make the deal appeal to lawmakers, Lamont says the merger was a matter of national security. 
+- They both believed they had America's interest at heart. They told themselves that their motives were not greed, but patriotism.
 
 
 
