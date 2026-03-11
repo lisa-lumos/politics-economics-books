@@ -164,7 +164,11 @@ One major obstacle of the merger was the White Act 1927, which prohibited monopo
 - To make the deal appeal to lawmakers, Lamont says the merger was a matter of national security. 
 - They both believed they had America's interest at heart. They told themselves that their motives were not greed, but patriotism.
 
+In the meanwhile, Micheal Meehan, the RCA specialist at NYSE that manages the stock's trading, manipulated pools to drive up the RCA stock prices, and made good profits when they pulled the plug. 
 
+Lamont did not believe that higher interest rates would end speculation. He and the House of Morgan assumed that banks would manage their business wisely, and preferred that the Federal Reserve stay out of it. 
+
+# 8. 1929-04-05
 
 
 
