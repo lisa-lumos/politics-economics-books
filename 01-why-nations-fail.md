@@ -253,6 +253,22 @@ Inclusive economic institutions need and use the state (the government), they do
 Extractive economic institutions - extractive because they are designed to extract incomes/wealth from one subset of society to benefit a different subset. 
 
 ## Engines of prosperity
+Inclusive economic institutions create inclusive markets:
+- give people freedom to pursue the occupations that best suit their talents
+- provide a level playing field, that gives them the opportunity to do so
+
+Contrast: Under the mita, people were forced to work in mines, regardless of their skills or what work they want to do. 
+
+Markets in slaves: coercing the majority of the population, robbing them of the ability to choose their occupations, and how they should use their talents. 
+
+Sustained economic growth is mostly accompanied by tech improvements and innovations that make things more productive. 
+
+Intimately linked to technology, are the education/knowledge/skills that obtained in schools/work. 
+
+The US could produce or attract from foreign lands, the scientists that made fundamental discoveries, upon which the entrepreneurs built their businesses. The supply of talent was there, because most kids in US have access to as much schooling as they which to attain. 
+
+Contrast: in poor countries, they have many potential Bill Gateses and Albert Einsteins who are working as poor, uneducated farmers, being coerced to do what they don't want to do, and never had the opportunity to realize their occupation in life. 
+
 ## Extractive and inclusive political institutions
 South/North Korea ended up with very different economic institutions, because different people with different interests/objectives made the decisions about how to structure society. While inclusive institutions may be good for the nation's prosperity, elites of the North Korea Communist Party will be better off by setting up institutions that are extractive. 
 
