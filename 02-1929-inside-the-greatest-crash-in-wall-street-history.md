@@ -169,9 +169,26 @@ In the meanwhile, Micheal Meehan, the RCA specialist at NYSE that manages the st
 Lamont did not believe that higher interest rates would end speculation. He and the House of Morgan assumed that banks would manage their business wisely, and preferred that the Federal Reserve stay out of it. 
 
 # 8. 1929-04-05
+As a legislator, Carter Glass had two passions:
+1. Segregation. To not let black people vote
+2. Banking system. Defender of the Federal Reserve system. 
 
+When the idea of a superbank to better manage the US currency emerged, which intend to put an end to the financial crises that regularly took down the economy, it had little chance of passing in Congress, until Glass called for a decentralized structure, that would let every region in the country to have a say in setting the monetary policy, therefore assuring the skeptical voters that the New York would nto be single-handedly running the economy. Glass's bill became law, and the Federal Reserve was born. 
 
+He believed that by speculating the stock market, Wall Street diverts a disproportionate share of the country's credit for its own unproductive uses, the credit should had gone to building manufacturing plants and providing jobs. Glass believed that Mitchell's decision to bolster the loan market went beyond political differences, and amounted to malfeasance. Glass believes Mitchell had slapped the Fed board in the face. 
 
+If the nation's financiers/speculators had one enemy above all others, it was Carter Glass. And if Glass had one enemy above all others, it was Wall Street. 
+
+# 9. 1929-04-08
+The conflict between Mitchell and Glass had become a national fracas, on and on the debate raged. 
+
+William Durant secretly met with President Hoover, and warned him that he believed the Federal Reserve were threatening prosperity, and a major financial disaster was imminent. He believed that like consumer goods, stock market were improving people's lives. 
+
+Hoover, however, was not convinced by Durant's warnings. He said he preferred to let American institutions/states govern themselves, to control its own members, and to prevent it from being used for manipulation against the public interest. 
+
+Durant passionately argued over and over again to Hoover, that the financial health of the entire economy (not just the stock market), was based on credit, and Hoover, if he did nothing, was about to bring an end to an unprecedented era of prosperity. 
+
+# 10. 1929-04-12
 
 
 
