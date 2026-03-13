@@ -189,11 +189,15 @@ Hoover, however, was not convinced by Durant's warnings. He said he preferred to
 Durant passionately argued over and over again to Hoover, that the financial health of the entire economy (not just the stock market), was based on credit, and Hoover, if he did nothing, was about to bring an end to an unprecedented era of prosperity. 
 
 # 10. 1929-04-12
+**John Raskob**: one of the wealthiest men in the nation. He is an entrepreneur-philosopher-financier-political operator, who felt like he could do anything he wanted. He loved playing the market. In the business realm, he was a self-made hero of American business; in the political world, he was disliked. 
 
+Raskob was not a man accustomed to losing, and his friend Al Smith's defeat stung. After Hoover won, Raskob wanted the Democrats to spend the next 4 years relentlessly attacking Hoover with everything they had. To obstruct the president's agenda, weaken his standing, and ensure he would be a one-term leader. 
 
+He was also entertaining a darker idea - he believed he could quietly orchestrate a covert campaign in the press to undermine Hoover's image. 
 
+By the 1920s, he had became an influential business leader, someone whose words could move markets. 
 
-
+Al Smith's professional handlers had their doubts about Raskob. For starters, he wasn't even a Democrat. 
 
 
 
