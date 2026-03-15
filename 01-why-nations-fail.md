@@ -274,9 +274,15 @@ South/North Korea ended up with very different economic institutions, because di
 
 Politics is the process, by which a society chooses the rules that will govern it. 
 
+The political institutions are the rules that govern incentives in politics. They determine how the government is chosen, and which part of the government has the right to do what. 
 
+If the power distribution is narrow and unconstrained, the the political institutions aer absolutist. 
 
+Political institutions that distribute power broadly and subject it to constraints are pluralistic. 
 
+The key to understanding why South Korea and the US have inclusive economic institutions, is not just their pluralistic political institutions, but also their sufficiently centralized/powerful states (governments). Somali government lacks political centralization, so it is unable to enforce law, to even support basic security of its citizens. 
+
+Inclusive political institutions: where political institutions are sufficiently centralized, and pluralistic. When either of these condition is not met, it is extractive political institutions. 
 
 
 ## Why not always choose prosperity?
