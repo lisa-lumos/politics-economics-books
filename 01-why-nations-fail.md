@@ -285,6 +285,15 @@ The key to understanding why South Korea and the US have inclusive economic inst
 Inclusive political institutions: where political institutions are sufficiently centralized, and pluralistic. When either of these condition is not met, it is extractive political institutions. 
 
 
+
+
+
+
+
+
+
+
+
 ## Why not always choose prosperity?
 ## The long agony of the congo
 ## Growth under extractive political institutions
