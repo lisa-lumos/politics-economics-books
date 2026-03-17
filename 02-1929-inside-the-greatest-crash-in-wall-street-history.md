@@ -199,7 +199,14 @@ By the 1920s, he had became an influential business leader, someone whose words 
 
 Al Smith's professional handlers had their doubts about Raskob. For starters, he wasn't even a Democrat. 
 
+# 11. 1929-04-14
+William Durant thought that perhaps a public pressure campaign might convince Hoover to intercede with the Fed board in Washington. So he went CBS and paid for a 15min airtime to vent his frustration about the Fed board. 
 
+Durant's speech was recounted on the front page of *The New York Times* the next morning. He also arranged for a copy of his speech to be sent to the president. 
+
+In Washington, Durant's efforts were being ignored. 
+
+Glass had an idea that he knew would finally tamp down the market: at the right time, he would insert an amendment in the tariff bill, that would levy a 5% tax on transfers of stock held for less thant 6 days, aimed at squarely at penalizing speculators. To Glass, if the Fed wasn't going to do its job, he was perfectly happy to do it form them. 
 
 
 
