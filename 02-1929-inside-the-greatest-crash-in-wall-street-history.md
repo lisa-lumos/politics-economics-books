@@ -214,8 +214,101 @@ Raskob has a grand vision to democratize the stock market, by allowing anyone to
 He also hired Charley Michelson, a sharp/aggressive journalist with a distaste for Hoover. 
 
 # 13. 1929-06-04
+After months of negotiations over reparations, a deal on Germany's war debts had been struck. David Sarnoff, the co-founder of RCA, facilitated it largely. 
+
+After that, Lamont turned his attention to the markets, and started to grow troubled, though he didn't make his concerns in public. Lamont instructed his son to liquidate several large holdings, worth about 4 mil. 
+
+# 14. 1929-06-29
 
 
+# 15. 1929-09-02
+
+
+# 16. 1929-10-02
+
+
+# 17. 1929-10-06
+
+
+# 18. 1929-10-10
+
+
+# 19. 1929-10-24
+
+
+# 20. 1929-10-27
+
+
+# 21. 1929-11-06
+
+
+# 22. 1929-11-08
+
+
+# 23. 1929-11-13
+
+
+# 24. 1929-12-19
+
+
+# 25. 1929-12-21
+
+
+# 26. 1930-09-30
+
+
+# 27. 1930-10-28
+
+
+# 28. 1930-11-05
+
+
+# 29. 1931-02-02
+
+
+# 30. 1932-02-18
+
+
+# 31. 1932-11-08
+
+
+# 32. 1933-02-18
+
+
+# 33. 1933-02-21
+
+
+# 34. 1933-02-22
+
+
+# 35. 1933-03-03
+
+
+# 36. 1933-03-07
+
+
+# 37. 1933-03-21
+
+
+# 38. 1933-05-16
+
+
+# 39. 1933-05-22
+
+
+# 40. 1933-05-23
+
+
+# 41. 1933-06-16
+
+
+# 42. 1933-06-21
+
+
+# Epilogue
+
+
+# Afterword
 
 
 
