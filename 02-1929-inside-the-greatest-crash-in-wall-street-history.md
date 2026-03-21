@@ -208,8 +208,12 @@ In Washington, Durant's efforts were being ignored.
 
 Glass had an idea that he knew would finally tamp down the market: at the right time, he would insert an amendment in the tariff bill, that would levy a 5% tax on transfers of stock held for less thant 6 days, aimed at squarely at penalizing speculators. To Glass, if the Fed wasn't going to do its job, he was perfectly happy to do it form them. 
 
+# 12. 1929-05-07
+Raskob has a grand vision to democratize the stock market, by allowing anyone to invest in a basket of stocks, and ust debt to boost returns. He thinks the general level to prices is too high to start the company for it. 
 
+He also hired Charley Michelson, a sharp/aggressive journalist with a distaste for Hoover. 
 
+# 13. 1929-06-04
 
 
 
