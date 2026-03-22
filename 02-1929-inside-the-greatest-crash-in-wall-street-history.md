@@ -219,6 +219,14 @@ After months of negotiations over reparations, a deal on Germany's war debts had
 After that, Lamont turned his attention to the markets, and started to grow troubled, though he didn't make his concerns in public. Lamont instructed his son to liquidate several large holdings, worth about 4 mil. 
 
 # 14. 1929-06-29
+The stock market kept going up. Gambling on stocks had replaced drinking as a legal intoxicant. 
+
+Raskob planned to launch his company later in the fall, when "the stock market has got back to normal". He had quietly been shorting GM stock, and created an elaborate market hedge to protect his other investments. 
+
+Glass had formally added an amendment to the tariff bill, making its way through the Senate. Such an amendment, were it to pass, was guaranteed to crush speculation. While the prevailing view is that the amendment was unlikely to pass the Senate, its introduction alone, Mitchell and Durant feared, could impede the summer bull market. 
+
+Jesse Livermore, the Wall Street's most notorious bear, had lined up on the constructive (betting on stocks going up instead of down) side of the stock market. 
+
 
 
 # 15. 1929-09-02
