@@ -225,9 +225,13 @@ Raskob planned to launch his company later in the fall, when "the stock market h
 
 Glass had formally added an amendment to the tariff bill, making its way through the Senate. Such an amendment, were it to pass, was guaranteed to crush speculation. While the prevailing view is that the amendment was unlikely to pass the Senate, its introduction alone, Mitchell and Durant feared, could impede the summer bull market. 
 
+Glass says: I own stocks and proprietary interest in newspapers, banks, hotels, farms, etc and other productive enterprises, but I have never acquired the habit of betting at one hour that the value of these interests will be greater or less the next hour, the next day, or the next month. 
+
 Jesse Livermore, the Wall Street's most notorious bear, had lined up on the constructive (betting on stocks going up instead of down) side of the stock market. 
 
+The rising market, Raskob's promises about getting rich, and the new/faster tickers installed at the Exchanges etc, had lured throngs of inexperienced investors to the center of the world's hottest stock market. 
 
+For the last three years, Mitchell had been plotting a takeover of the Corn Exchange Bank. With National City's stock soaring ot dizzying heights, he sensed the perfect moment to finalize the deal. It would put his bank to the biggest in the world. 
 
 # 15. 1929-09-02
 
