@@ -233,6 +233,10 @@ The rising market, Raskob's promises about getting rich, and the new/faster tick
 
 For the last three years, Mitchell had been plotting a takeover of the Corn Exchange Bank. With National City's stock soaring ot dizzying heights, he sensed the perfect moment to finalize the deal. It would put his bank to the biggest in the world. 
 
+Summer was usually a slow time for stock trading, but not this summer: Trading volume had broken all records as the market kept going higher. 
+
+In the meantime Livermore saw stress gathering in the fragile seams holding the boom together. He was edging back to his familiar shorting stance. 
+
 # 15. 1929-09-02
 
 
