@@ -238,6 +238,23 @@ Summer was usually a slow time for stock trading, but not this summer: Trading v
 In the meantime Livermore saw stress gathering in the fragile seams holding the boom together. He was edging back to his familiar shorting stance. 
 
 # 15. 1929-09-02
+Roger Babson, a statistician and economic analyst, said that:
+1. The Feds had put the banks in a strong position, but it has not changed the human nature - More people are borrowing and speculating today than ever in the history. Sooner or later a crash is coming, and it may be terrific. 
+2. The time is coming when the market will begin to slide off, sellers will exceed buyers, and paper profits will begin to disappear. Then there will be immediately a stampede to save what left of the paper profits. 
+3. As soon as words gets abroad that the large American investment trusts are selling, the European houses will begin to sell too. The general public then follows with a desire to take profit. 
+
+Walter Sachs, a family member that founded the Goldman Sachs, when came back from his summer vacation, and noticed that its top banker had been investing the firm's public fund in increasingly risky assets, and blamed the banker, the banker retorted: The trouble with you, Walter, is that you have no imagination!
+
+Yale professor Irving Fisher, become an intellectual celebrity, because of his optimism in the market. He thinks stock prices are not too high.
+
+The market kept advancing. But something seemed different: Unusually large transactions were keeping it aloft. Driving much of the stock buying was an explosion in broker's loans to customers, including American corporations and foreign companies, pouring their profits into the call money market, chasing short-term yields up to 20%. 
+
+President Hoover, now in the job for 6 mo, agrees with Babson. The roaring market unnerved him. He blamed the Feds for its inaction for speculation, but also believed it was too late to suddenly impose credit restrictions without undermining legitimate business needs. 
+
+Mellon and Hoover are divided. 
+
+Lamont enjoys giving advice to important figures like Hoover, hoping the relationship with Hoover would manifest in ways that would allow Lamont to advise the president on the most pressing issues of the day. 
+
 
 
 # 16. 1929-10-02
