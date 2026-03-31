@@ -255,7 +255,9 @@ Mellon and Hoover are divided.
 
 Lamont enjoys giving advice to important figures like Hoover, hoping the relationship with Hoover would manifest in ways that would allow Lamont to advise the president on the most pressing issues of the day. 
 
+For Mitchell, the buying of Corn Exchange Bank, if National City Bank stock falls below 450$ per share, National City would have to make up the difference in cash. Mitchell was confident that it won't go below. 
 
+Livermore scribbled down the fundamental rules for investors. 
 
 # 16. 1929-10-02
 
