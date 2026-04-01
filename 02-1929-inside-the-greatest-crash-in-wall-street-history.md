@@ -260,7 +260,9 @@ For Mitchell, the buying of Corn Exchange Bank, if National City Bank stock fall
 Livermore scribbled down the fundamental rules for investors. 
 
 # 16. 1929-10-02
+John Raskob invited a group of men over, showed them the model of his largest building, and asked his guests to keep buying stock and talking up the market. 
 
+Raskob has faith in his vision - the growth of the great American city.
 
 # 17. 1929-10-06
 
