@@ -265,7 +265,13 @@ John Raskob invited a group of men over, showed them the model of his largest bu
 Raskob has faith in his vision - the growth of the great American city.
 
 # 17. 1929-10-06
+Winston Churchill, the British statesman, arrives in New York after touring North America and gets swept up in the stock market boom.
+- He knows almost nothing about investing but treats it like gambling.
+- Encouraged by wealthy insiders like Bernard Baruch, he opens trading accounts and starts buying stocks on margin (borrowed money).
+- His trip exposes him to extreme wealth and optimism - lavish parties, powerful financiers, and a culture where everyone believes they can get rich.
+- He even lines up media deals and connections (e.g., with William Randolph Hearst), blending finance, media, and celebrity.
 
+Churchill observed: Unlike in Europe, the social life of the US is built around business. 
 
 # 18. 1929-10-10
 
