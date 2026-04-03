@@ -274,6 +274,16 @@ Winston Churchill, the British statesman, arrives in New York after touring Nort
 Churchill observed: Unlike in Europe, the social life of the US is built around business. 
 
 # 18. 1929-10-10
+President Hoover preferred to leave Wall Street to its own devices but come to understand that it was politically untenable to do so. He consulted Lamont on the stock market, and Lamont reassured Hoover that the economy was remarkably stable - He hoped that Hoover would leave the market alone. 
+
+Mitchell agrees with Professor Fisher - the has faith in the American financial markets. 
+
+Among Wall Street insiders, Leffingwell was more apprehensive than most. The extended bull market was dependent on many unsound/unethical/non-transparent practices, such as pools, investment trusts, etc. Though it was true that new issues of stock were financing industry and new technologies, those weren't the ones that drove the stock market up. Rather, it was speculators trading existing securities, such as RCA - All built on easy credit. 
+
+Oct 19, Saturday, the Dow was down 8% for the week, prompting brokers to issue margin calls to customers. 
+
+
+
 
 
 # 19. 1929-10-24
