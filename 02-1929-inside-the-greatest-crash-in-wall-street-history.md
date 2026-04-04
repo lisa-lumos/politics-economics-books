@@ -280,11 +280,15 @@ Mitchell agrees with Professor Fisher - the has faith in the American financial 
 
 Among Wall Street insiders, Leffingwell was more apprehensive than most. The extended bull market was dependent on many unsound/unethical/non-transparent practices, such as pools, investment trusts, etc. Though it was true that new issues of stock were financing industry and new technologies, those weren't the ones that drove the stock market up. Rather, it was speculators trading existing securities, such as RCA - All built on easy credit. 
 
-Oct 19, Saturday, the Dow was down 8% for the week, prompting brokers to issue margin calls to customers. 
+Oct 19, Saturday, the Dow was down 8% for the week, prompting brokers to issue margin calls to customers. Investors short on cash watched as brokers sold off their positions to recover debts. This set a self-perpetuating cycle in motion. The selling drove stock prices even lower, triggering more margin calls, and more liquidation. 
 
+Livermore was the leader of a massive bear consortium rampaging Wall Street, and he think the stock was ridiculously overpriced. 
 
+Mitchell made conflicting statements at the Feds board, stating that there was nothing wrong with the market, but lowering interest rate was necessary to help business to return full prosperity. 
 
+Oct 23, the market panic selling hit bht blue-chip stocks, and the Dow was down 7% for that day. 
 
+Bond dealers were happy seeing the stock market crashing. For years, the customers had been lured away by stock brokers promising higher returns. But in the past days and hours, bonds had been steadily advancing. 
 
 # 19. 1929-10-24
 
