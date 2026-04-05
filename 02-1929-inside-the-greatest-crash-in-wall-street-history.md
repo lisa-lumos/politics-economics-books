@@ -291,7 +291,11 @@ Oct 23, the market panic selling hit bht blue-chip stocks, and the Dow was down 
 Bond dealers were happy seeing the stock market crashing. For years, the customers had been lured away by stock brokers promising higher returns. But in the past days and hours, bonds had been steadily advancing. 
 
 # 19. 1929-10-24
+A blizzard of sell orders from around the country blanketed the market. The panic became so pervasive, that brokers were willing to sell at any price. Everybody wants to sell out. 
 
+Lamont gathered six banks' leaders to stabilizing the market, by buying the stocks on behalf of their investment trusts. Bernard Baruch declined, as be believed that no group could ensure the markets wouldn't continue to collapse. 
+
+Hoover believed that the country has gone through the crisis in the stock market, but the crisis has been isolated to the stock market itself. It has not extended into either the production activities of the country, or the financial fabric of the country. 
 
 # 20. 1929-10-27
 
