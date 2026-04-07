@@ -298,6 +298,13 @@ Lamont gathered six banks' leaders to stabilizing the market, by buying the stoc
 Hoover believed that the country has gone through the crisis in the stock market, but the crisis has been isolated to the stock market itself. It has not extended into either the production activities of the country, or the financial fabric of the country. 
 
 # 20. 1929-10-27
+Oct 28, Mon, Mitchell hopes the market would stabilize soon, however, frantic selling began as soon as the bell sounded. In the morning, he told his trader Hugh Baker to by the bank's shares if they fell to much, so the still-pending merger with the Corn Exchange Bank can go through. That day, the Dow dropped 13%, and found that National City Bank had bought far too many shares, and couldn't afford them. 
+
+Bernard Baruch decided to sell everything he could, and didn't tell anyone what he had done. Herbert Swope, a journalist that attended his dinner that day, thinks the attitude of the rich men there indicates the the market would recover soon. 
+
+The next day, Mitchell decides to use his own money to buy back National City shares, and seek a loan from another bank to help pay for it. 
+
+
 
 
 # 21. 1929-11-06
