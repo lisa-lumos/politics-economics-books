@@ -304,6 +304,9 @@ Bernard Baruch decided to sell everything he could, and didn't tell anyone what 
 
 The next day, Mitchell decides to use his own money to buy back National City shares, and seek a loan from another bank to help pay for it. 
 
+The New York feds had a meeting, intending to talk about closing the stock market, but Richard Whitney, a Morgan partner, reminded them that it would trigger gutter market and exacerbate the panic, prompting more panic selling. 
+
+Jesse Livermore make 100 million that day by shorting stocks. 
 
 
 
