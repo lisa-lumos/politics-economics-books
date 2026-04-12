@@ -311,7 +311,7 @@ Jesse Livermore make 100 million that day by shorting stocks.
 Churchill lost money in the market too. However, his optimism about American capitalism was unbowed. He think this financial disaster is only a passing episode in the march of a valiant/serviceable people, who by fierce experiment, are hewing new paths for men, and showing to all nations much that they should attempt, and much that they should avoid. He thinks the English should acquaint themselves with the inherent probity/strength of the American speculative machine. It is not built to prevent crises, but to survive them. 
 
 # 21. 1929-11-06
-
+The merger between Charles Mitchell's National City Bank and the Corn Exchange Bank is not going to move forward, and Lamont was furious with Mitchell. Bankers worry that the failed deal would roil the markets. 
 
 # 22. 1929-11-08
 
