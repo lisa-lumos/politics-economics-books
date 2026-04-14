@@ -314,7 +314,13 @@ Churchill lost money in the market too. However, his optimism about American cap
 The merger between Charles Mitchell's National City Bank and the Corn Exchange Bank is not going to move forward, and Lamont was furious with Mitchell. Bankers worry that the failed deal would roil the markets. 
 
 # 22. 1929-11-08
+Riordan, Joh Raskob's close friend, had committed suicide, because he had to quickly call in loans to save his County Trust Bank, but doing so would wipe out many customers he regarded as friends, as they had to sell at a loss. 
 
+Raskob requested the croner to delay reporting this incident, because they are worried that customers would rush to County Trust and demand their money, creating a bank run. On the next day, Raskob finally made Riordan's death public, and affirm the bank's balance sheet was strong from a recent audit. 
+
+The next day, Raskob, worried about a panic that would spread, asked the Feds to bolster the bank with a significant infusion of cash. The bank was saved. 
+
+Jesse Livermore has been receiving threats, because the public perception is that, short sellers are vultures profiting from other people's misery. By the mid Nov, Livermore began to suspect the stock market was oversold, and call the newspapers to make a proclamation. However, even his confidence would not bolster the market. The market had fallen by half.  
 
 # 23. 1929-11-13
 
