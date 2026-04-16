@@ -336,9 +336,22 @@ Glass attacked Mitchell, making his picture to appear on the newspaper front pag
 William Durant did not get out of the market in Oct, and was furious about the market's collapse. But he failed to convince his friend Bernard Baruch to remain in the market. Durant had helped inflate the boom, and now worried he might be cast as one of the villains. When a journalist approached him, he focused the blame on Hoover. He felt that his warnings to Hoover that a financial disaster was imminent should be known - the ultimate "I told you so". 
 
 # 24. 1929-12-19
+Mitchell is saddled with monumental losses on paper, because of the National City shares he bought in October - the stock fell ~20% from his paid price. 
 
+He sold the shares to his wife, so he can capture the loss for tax purposes, and keep the sale secret. And he wouldn't lose the upside on the stock, which he was certain would soon rise. 
 
 # 25. 1929-12-21
+To most New Yorkers, the soaring landmarks seemed better indicators of long-term prosperity, than the transitory fluctuations of the stock market. Some thinks the market sell-off a righting, and a cause of celebration - The madness was over!
+
+John Raskob's essay to propose to move from a 6-day to a 5-day workweek, thinking it would boost consumption.
+
+The mood of *The New York Times*'s financial writers was sober/contemplative, but not overwhelmingly pessimistic. There was even a note of optimism, because the crash had not induced instant showdowns/unemployment/bankruptcy from major banks, etc. The stock market crash didn't even rate as the newspaper's most important news story of 1929. 
+
+The Dow was down 17% for the year. Bankers/traders had seen worse, not even that long ago, which recovered 2 years later. Panics/crashes were a natural occurrence.  
+
+However, real confidence was hard to find. The common man that lost everything, faced a more precarious future - When would they return to the stock market? When will they have money to spend on much of anything? Stock market losses had cut deeply into household funds, and the availability of credit. There was a shift in mindset, not fully realized by the stock market, but very real to most Americans, that cast a shadow over the whole economy. 
+
+# Part II
 
 
 # 26. 1930-09-30
