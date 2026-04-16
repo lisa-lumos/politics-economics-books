@@ -157,7 +157,7 @@ Carter Glass would never forget/forgive what Mitchell did.
 # 7. 1929-03-29
 The news on the merger of RCA, Western Union and ITT has leaked. 
 
-RCA, held patients on innovations that had yet to be exploited (including TV), was the glamour stock of teh 1920s, its shares the most heavily traded on the Exchange. Investors think it represented the future. It potential seemed limitless, as its stock price. 
+RCA, held patients on innovations that had yet to be exploited (including TV), was the glamour stock of the 1920s, its shares the most heavily traded on the Exchange. Investors think it represented the future. It potential seemed limitless, as its stock price. 
 
 One major obstacle of the merger was the White Act 1927, which prohibited monopolies involving communications companies:
 - Young believed competition in communications was counterproductive, because it leds to duplication of plants/equipments. He saids so on all the business he controlled. 
@@ -323,7 +323,17 @@ The next day, Raskob, worried about a panic that would spread, asked the Feds to
 Jesse Livermore has been receiving threats, because the public perception is that, short sellers are vultures profiting from other people's misery. By the mid Nov, Livermore began to suspect the stock market was oversold, and call the newspapers to make a proclamation. However, even his confidence would not bolster the market. The market had fallen by half.  
 
 # 23. 1929-11-13
+Mellon was reluctant to intervene, believing the panic would naturally reverse. He thinks the downward market was just tough medicine, and would ultimately strengthen the economy. He proposed tax cuts, and supported Feds reduction of the discount rate, but that was as far as he was willing to go. 
 
+The next morning, the market dropped another 5%, Hoover received a letter from Robert Lamont, the commerce secretary, saying the situation is dangerous, and fears of bank runs. 
+
+Then on Black Tuesday, the market plunged ~12%, sent shockwaves across the world. 
+
+Hoover advised governors to speed up road/building constructions to solidify employment. Henry Ford surprised Hoover by handing out announcement on wage hikes, to keep the economy humming - he loathed Wall Street. 
+
+Glass attacked Mitchell, making his picture to appear on the newspaper front pages, as the culprit for the market collapse. 
+
+William Durant did not get out of the market in Oct, and was furious about the market's collapse. But he failed to convince his friend Bernard Baruch to remain in the market. Durant had helped inflate the boom, and now worried he might be cast as one of the villains. When a journalist approached him, he focused the blame on Hoover. He felt that his warnings to Hoover that a financial disaster was imminent should be known - the ultimate "I told you so". 
 
 # 24. 1929-12-19
 
