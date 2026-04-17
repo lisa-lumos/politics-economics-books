@@ -352,6 +352,21 @@ The Dow was down 17% for the year. Bankers/traders had seen worse, not even that
 However, real confidence was hard to find. The common man that lost everything, faced a more precarious future - When would they return to the stock market? When will they have money to spend on much of anything? Stock market losses had cut deeply into household funds, and the availability of credit. There was a shift in mindset, not fully realized by the stock market, but very real to most Americans, that cast a shadow over the whole economy. 
 
 # Part II
+By 1930 late spring, the market recovered half of the losses from the prv Oct. Then it ended 1930 down by 1/3 for the year, then fell by half the following year. The collapse was not a moment. It was a relentless unraveling. 
+
+There wer bigger problems then the market crash: mass umemployment, shanty towns, breadlines, etc. The Great Depression had begun. 
+
+The sharp decline in asset prices left little equity to cover great quantities of debt, shedding the credit markets. Credit, the lifeblood of the modern economy, was nowhere to be found. American's didn't trust banks anymore - money was pulled out of savings accounts and stuffed into mattresses. 
+
+People's natural impulse to save money during economic uncertainty, has the effect of worsening the economy, because no one was spending. This is why the English economist John Keynes thinks the government should step in. 
+
+Washington was running a budget surplus, yet Hoover believed that spending it on relief would impede the recovery. Wall Street was also fearful of an expansive/assertive Washington. 
+
+
+
+
+
+
 
 
 # 26. 1930-09-30
