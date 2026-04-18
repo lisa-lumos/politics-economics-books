@@ -362,12 +362,9 @@ People's natural impulse to save money during economic uncertainty, has the effe
 
 Washington was running a budget surplus, yet Hoover believed that spending it on relief would impede the recovery. Wall Street was also fearful of an expansive/assertive Washington. 
 
+The Smoot Hawley tariff bill that was intended to help ailing farmers, which Thomas Lamont and Glass etc disagree with, was signed by Hoover in summer 1930. It collapsed the grain overnight, because the trade between the US and the rest of the world fell by 60% in a year, as retaliation from other countries killed US export markets, causing oversupply in the US market. 
 
-
-
-
-
-
+Throughout 1930, small banks across US began to fail. Also, the USD was convertible to gold, any big moves from the government could cause people to start turning in their USD for gold. Literally a run on the US government. 
 
 # 26. 1930-09-30
 
