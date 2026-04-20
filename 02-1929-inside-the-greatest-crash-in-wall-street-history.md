@@ -374,6 +374,8 @@ Shift in public narrative (scapegoat thinking). The public/writers begin blaming
 In his prime, Mitchell had always been able to charm the press. Now as Sherrod's Scapegoat book climbed the bestseller list, his once-lofty reputation was being brought down to earth. 
 
 # 27. 1930-10-28
+The focus shifts to John Raskob, a powerful businessman and Democratic political figure. He's under attack after reports reveal a covert media campaign against President Hoover. The campaign involved planting anti-Hoover stories through intermediaries like Michelson to influence public opinion.
+
 
 
 # 28. 1930-11-05
