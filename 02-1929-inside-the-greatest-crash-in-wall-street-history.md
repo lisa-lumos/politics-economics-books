@@ -378,6 +378,8 @@ The focus shifts to John Raskob, a powerful businessman and Democratic political
 
 Raskob gives a radio address to defend himself and push back against the accusations. At the same time, he uses the platform to attack Hoover and Republican policies.
 
+The crisis becomes openly politicized: The fight is no longer just Wall Street vs. reality - it's now Democrats vs. Republicans, each trying to control the story of who caused the Depression.
+
 # 28. 1930-11-05
 
 
