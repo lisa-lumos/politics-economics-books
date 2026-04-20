@@ -369,6 +369,10 @@ Throughout 1930, small banks across US began to fail. Also, the USD was converti
 # 26. 1930-09-30
 Inside Wall Street, there is a growing realization that recovery is far away, even if leaders such as Lamont publicly stay optimistic. 
 
+Shift in public narrative (scapegoat thinking). The public/writers begin blaming bankers and financiers for the crash. 
+
+In his prime, Mitchell had always been able to charm the press. Now as Sherrod's Scapegoat book climbed the bestseller list, his once-lofty reputation was being brought down to earth. 
+
 # 27. 1930-10-28
 
 
