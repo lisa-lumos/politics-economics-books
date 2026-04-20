@@ -376,7 +376,7 @@ In his prime, Mitchell had always been able to charm the press. Now as Sherrod's
 # 27. 1930-10-28
 The focus shifts to John Raskob, a powerful businessman and Democratic political figure. He's under attack after reports reveal a covert media campaign against President Hoover. The campaign involved planting anti-Hoover stories through intermediaries like Michelson to influence public opinion.
 
-
+Raskob gives a radio address to defend himself and push back against the accusations. At the same time, he uses the platform to attack Hoover and Republican policies.
 
 # 28. 1930-11-05
 
