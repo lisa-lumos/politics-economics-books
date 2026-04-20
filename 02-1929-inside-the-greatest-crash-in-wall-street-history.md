@@ -367,7 +367,7 @@ The Smoot Hawley tariff bill that was intended to help ailing farmers, which Tho
 Throughout 1930, small banks across US began to fail. Also, the USD was convertible to gold, any big moves from the government could cause people to start turning in their USD for gold. Literally a run on the US government. 
 
 # 26. 1930-09-30
-
+To the outside world, Lamont remained resolutely upbeat. The discussions he was having with his partners behind closed doors, however, were of a decidedly different tenor. 
 
 # 27. 1930-10-28
 
