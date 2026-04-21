@@ -381,7 +381,13 @@ Raskob gives a radio address to defend himself and push back against the accusat
 The crisis becomes openly politicized: The fight is no longer just Wall Street vs. reality - it's now Democrats vs. Republicans, each trying to control the story of who caused the Depression.
 
 # 28. 1930-11-05
+In the 1930 midterm elections, Hoover and the Republicans suffered major losses - Democrats made big gains. Voters are no longer buying optimism - they're reacting to real economic pain.
 
+Every market rally eventually reversed course. 
+
+Federal government lacked the resources to administer nationwide programs. Washington's budgets represented just a few percentage of GDP. 
+
+The Bank of United States had a bank run. The hope that a new bull market was imminent had stayed alive until almost the end of 1930. But now it had vanished. 
 
 # 29. 1931-02-02
 
