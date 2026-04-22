@@ -390,6 +390,9 @@ Federal government lacked the resources to administer nationwide programs. Washi
 The Bank of United States had a bank run. The hope that a new bull market was imminent had stayed alive until almost the end of 1930. But now it had vanished. 
 
 # 29. 1931-02-02
+Glass called a Senate subcommittee to look into the countries banking laws, and Mitchell was summoned to undergo questioning. Glass pointedly asked Mitchell to explain what caused the crash. Glass's view was that companies had issued stock, for raising funds to make loans right back into the stock market, and that Wall Street was fully complicit in this circular flow of capital, happy to organize the offerings, and collect ample fees/commissions along the way. 
+
+Roughly 1k banks had failed over the last year. Bank runs had become almost a contagion. 
 
 
 # 30. 1932-02-18
