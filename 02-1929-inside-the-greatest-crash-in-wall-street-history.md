@@ -390,9 +390,20 @@ Federal government lacked the resources to administer nationwide programs. Washi
 The Bank of United States had a bank run. The hope that a new bull market was imminent had stayed alive until almost the end of 1930. But now it had vanished. 
 
 # 29. 1931-02-02
-Glass called a Senate subcommittee to look into the countries banking laws, and Mitchell was summoned to undergo questioning. Glass pointedly asked Mitchell to explain what caused the crash. Glass's view was that companies had issued stock, for raising funds to make loans right back into the stock market, and that Wall Street was fully complicit in this circular flow of capital, happy to organize the offerings, and collect ample fees/commissions along the way. 
+Glass called a Senate subcommittee to look into the countries banking laws, and Mitchell was summoned to undergo questioning. Glass pointedly asked Mitchell to explain what caused the crash. Glass's view was that companies had issued stock, for raising funds to make loans right back into the stock market, and that Wall Street was fully complicit in this circular flow of capital, happy to organize the offerings, and collect ample fees/commissions along the way. Mitchell said he was unaware of that actually happening. 
 
 Roughly 1k banks had failed over the last year. Bank runs had become almost a contagion. 
+
+Hoover was exasperated that the crash and its aftermath were consuming his presidency. 
+
+Europe had once been a safety net for the US. When America stocks sank, buyers from Europe had been happy to buy then low, keeping the market from collapsing entirely. But the mutual benefits of trade disrupted by the crash, and the Smoot-Hawley tariffs, makes Europe in danger of becoming a deadweight on US prospects. 
+
+From April to August, more banks failed. In Sept, UK gave up the gold standard, sending markets into turmoil again. 
+
+Hoover assembled a group of financial executives, and told them that the economy, and the banking system, was in jeopardy. He demands that the men to pony up 500mil in emergency credit, to shore up struggling banks. He also asked them to suspend mortgage foreclosures on the homes/farms of responsible people. 
+
+The bankers, already had their own struggles to stay afloat, wasn't enthusiastic about the it. Hoover made it clear: This was their last best chance. If they didn't address the crises now, reform of the banking system  would be turned over to Congress, and that might spell the end of capitalism, as they knew it. 
+
 
 
 # 30. 1932-02-18
