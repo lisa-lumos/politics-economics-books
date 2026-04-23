@@ -404,9 +404,20 @@ Hoover assembled a group of financial executives, and told them that the economy
 
 The bankers, already had their own struggles to stay afloat, wasn't enthusiastic about the it. Hoover made it clear: This was their last best chance. If they didn't address the crises now, reform of the banking system  would be turned over to Congress, and that might spell the end of capitalism, as they knew it. 
 
-
+Baruch's biggest stock holding was an Alaskan gold mining concern, and he was making plans to amass his own supply of gold bullion - a hedge against the entire US monetary system - something few private citizens could afford to do. 
 
 # 30. 1932-02-18
+By 1932, stock prices had collapsed by more than 80% from their 1929 peak. The employment rate was around 25%. 
+
+Mellon still firmly believed that the economy and the market needed to sort itself out, without government intervention. 
+
+The Glass-Steagall Act of 1932, hastily passed by Congress, and signed into law by Hoover in Feb, effectively loosened the purse strings of the Federal Reserve, empowering it to lend more freely to small banks that were failing across America. 
+
+Glass had other ideas, but they weren't fully developed just yet. One of his biggest ideas was to break up the commercial lending side, from the investment banking side. That way the traders/speculators wouldn't endanger the commercial banks side, where ordinary Americans keep their bank accounts at. 
+
+Steagall's big idea was to have the government guarantee bank deposits, which he believed was the only way that customers would have confidence in banks. Unless the government stepped in, and ensured that bank deposits would be safe, he believed, the string of bank runs would continue unabated. Glass is strongly against this.
+
+
 
 
 # 31. 1932-11-08
