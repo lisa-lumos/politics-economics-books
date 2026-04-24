@@ -417,8 +417,7 @@ Glass had other ideas, but they weren't fully developed just yet. One of his big
 
 Steagall's big idea was to have the government guarantee bank deposits, which he believed was the only way that customers would have confidence in banks. Unless the government stepped in, and ensured that bank deposits would be safe, he believed, the string of bank runs would continue unabated. Glass is strongly against this.
 
-
-
+Ever since the crash, Hoover had become increasingly convinced that short sellers were sabotaging not only the market, but his presidency. Since a ban on short selling was a legislative long shot, he decided to expose the short sellers to public scrutiny. This did not go well. 
 
 # 31. 1932-11-08
 
