@@ -420,7 +420,11 @@ Steagall's big idea was to have the government guarantee bank deposits, which he
 Ever since the crash, Hoover had become increasingly convinced that short sellers were sabotaging not only the market, but his presidency. Since a ban on short selling was a legislative long shot, he decided to expose the short sellers to public scrutiny. This did not go well. 
 
 # 31. 1932-11-08
+After Hoover lost reelection, embittered Republicans tried to do as much damage to the incoming administration as they could, in the 4 months before it took office. 
 
+Norbeck had won reelection, and would remain chairman of the Senate Banking/Currency Committee, until Roosevelt took office, and the Democrats took control of the Senate. With the short time he had left, he intended to restart the investigation on Wall Street. 
+
+They got Pecora for the job, who believes that if he could discover what happened at National City Bank  during the run-up to the crash, and reveal how small investors had been exploited, the committee would have a change at passing reforms to regulate the stock market. But he had to work fast. 
 
 # 32. 1933-02-18
 
