@@ -427,22 +427,61 @@ Norbeck had won reelection, and would remain chairman of the Senate Banking/Curr
 They got Pecora for the job, who believes that if he could discover what happened at National City Bank  during the run-up to the crash, and reveal how small investors had been exploited, the committee would have a change at passing reforms to regulate the stock market. But he had to work fast. 
 
 # 32. 1933-02-18
+Michigan declared a bank holiday, meaning a temporary closure of the state's banks. The treasury department reported another $100mil of gold had slipped away to Europe, an indication of nose-diving confidence in the American dollar. 
 
+Hoover tried to warn Roosevelt about how bad the economy was, and about how bank runs were spreading across states again. He urged Roosevelt to publicly support federal measures to stabilize bank and commit to maintaining the gold standard (publicly back Hoover's strategy), before officially taking power, so the crisis wouldn't happen.
+
+Roosevelt large refused to commit publicly. He believed that Hoover's policies had failed, and tying himself to them would hurt his ability to act later - he needed full freedom to implement his own approach (The New Deal). 
+
+Roosevelt's first choice for his treasury secretary was Garter Glass, who was hesitant because of his health condition, and their differences. Glass sought to choose his friend Lamont and Leffingwell as confidant and under secretary, but the White House refuse to give a Wall Street figure such a prominent position. Hence glass formally declined the position. 
+
+Glass and Roosevelt were completely different political animals. Glass prided himself on making unpopular stands when he deemed them necessary - his willingness to fight for long-shot causes was the source of his popularity. His follow Virginians agreed with him or not, they admired his stubbornness. 
+
+Roosevelt, in contrast, was uncannily sensitive to the shifts in political winds, always wanting to make sure they were at his back. 
+
+Roosevelt named William Woodin as treasury of secretary. 
 
 # 33. 1933-02-21
+Mitchell vs. Pecora: Mitchell testifies before the Senate Banking Committee. The questioning is led by prosecutor Ferdinand Pecora, who is methodical and relentless. Senators openly challenge his claim that he acted responsibly.
 
+1. Tax avoidance scheme. Mitchell sold stock in 1929 at a "loss" to avoid taxes. The buyer was family member (his wife). This allowed him to claim a ~$2.8 million loss and pay zero income tax for 1929.
+2. Executive bonus manipulation. National City had a bonus pool for executives. Bonuses were later reclassified as "loans/advances", helping insiders reduce or avoid taxes.
+3. Moral contradiction exposed. While ordinary investors lost everything, Mitchell protected himself financially.
+
+
+This hearing is a turning point in public opinion. It transforms anger from "the system failed" -> "specific people abused the system".
+
+Mitchell's reputation collapses almost immediately.
 
 # 34. 1933-02-22
+After the damaging testimony in the previous chapter, Charles E. Mitchell comes back under even heavier scrutiny. More details emerge showing his loss transaction was essentially not a real economic loss, just a paper maneuver to dodge taxes. Under pressure, he's forced to admit key facts he previously tried to soften.
 
+Newspapers pick it up immediately. The idea that a top banker paid zero tax in 1929 while millions suffered hits a nerve.
+
+Mitchell is forced out of leadership at National City Bank soon after. His reputation is effectively destroyed.
 
 # 35. 1933-03-03
+The Senate Banking committee sought and received broad authority from Congress to allow it to "make thorough/complete investigation of the operation by any person/firm/partnership/etc in the business of banking/financing and extending credit". 
 
+Banks across the country are failing. President Roosevelt ended the epidemic of bank runs, by declaring a national bank holiday, the first time the entire banking system was shuttered at once. What would've been viewed as a desperate measure if carried out by Hoover, was instead received as a bold executive action. 
 
 # 36. 1933-03-07
+Without any prompting from the government, the banking world had decided to separate its commercial bank from its investment bank. The Charles Mitchell era was officially over. 
 
+The next day, Glass was hit with bigger surprise. Winthrop Aldrich, who had just taken over Chase, the nation's largest bank, declared that all banks, public and private, be force to do what National City had just done, and stop trading securities. And then he went one step further: He said that investment bank executives should also be barred from serving as directors of commercial banks, a move clearly aimed at JP Morgan's business model, which relied on its partners' intimate relationships with big commercial lenders. 
+
+Whether or not  Aldrich genuinely believed his proposals constituted sound public policy, his shrewed maneuvering marked the dawn of a new era on Wall Street. For since long ago, the nation's bankers had agreed on one thing: Interference from Washington benefited none of them. Now, as the inevitability of major reforms sank in, Aldrich showed them all the necessity of jockeying for whatever regulatory advantage they could get. This is how the game would be played. 
+
+Glass, a believer in private enterprise, just wanted to reign in the biggest publicly traded institutions. In particular, he had no interest in harming J.P Morgan, which was as private partnership. Morgan partner Russel Cornell Leffingwell, was practically family. 
+
+In Glass's view, the thousands of tiny/undercapitalized lenders in the US undermined the stability of the entire banking system. Their markets were too small/interdependent. But if the banks were part of a larger network, they'd have other customers to fall back on. So Glass prefer larger institutions over smaller/scattered ones. 
+
+However, to Huey Long, the little banks were the backbone of America, a hedge against the evil forces of centralized power. If banks were allowed to open branches everywhere, New York would be effectively running the entire country. 
 
 # 37. 1933-03-21
+Mitchell is formally charged with tax evasion. That loss he claimed in 1929 (selling stock to his wife) is treated as a fraudulent maneuver, not a legitimate transaction.
 
+The US was trying to redefine the boundary between aggressive finance vs. illegal behavior. The system is under pressure to punish someone, even if the laws weren't fully built for it yet. 
 
 # 38. 1933-05-16
 
@@ -463,6 +502,3 @@ They got Pecora for the job, who believes that if he could discover what happene
 
 
 # Afterword
-
-
-
