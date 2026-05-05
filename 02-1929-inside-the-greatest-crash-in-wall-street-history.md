@@ -484,10 +484,16 @@ Mitchell is formally charged with tax evasion. That loss he claimed in 1929 (sel
 The US was trying to redefine the boundary between aggressive finance vs. illegal behavior. The system is under pressure to punish someone, even if the laws weren't fully built for it yet. 
 
 # 38. 1933-05-16
-
+The limits of accountability: Mitchell is clearly exposed ethically; But legally, the system struggles to punish him.
 
 # 39. 1933-05-22
+On Roosevelt's campaign trail, he made it clear that he believed in the gold standard, as a safeguard agains the evils of inflation. But barely a few days as a president, the US was off the gold standard. He had come to understand the gold standard as a constraint on his power, and he wasn't going to held to it, even if it meant leaving an important ally like Glass howling in the wind. 
 
+As to Steagall's insist on the government-provided guarantee of bank deposits, Glass and Roosevelt both are opposed to it. They think that the government will run into a loss if it guarantees all the banks, including both good and bad ones. 
+
+The public, however, was deeply frightened by the bank runs, and wanted them to end. If guaranteeing deposits was what it took, so be it. This had become the overwhelming popular view, and neither Glass nor Roosevelt could afford to ignore it. 
+
+The Steagall plan, which Glass reluctantly signed on to, called for the creation of a "federal deposit insurance corporation". It would be funded by the nation's banks themselves, which would pay into it; the insurance premiums would be used to protect the first 2.5k$ of deposits, for customers with accounts at failing banks. 
 
 # 40. 1933-05-23
 
