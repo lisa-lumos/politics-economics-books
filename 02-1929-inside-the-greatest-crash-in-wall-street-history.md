@@ -506,7 +506,7 @@ This is basically privileged access in exchange for influence - Systemic favorit
 Morgan had been seen as the most respectable bank, now even they look compromised. This removes the last illusion that: maybe only "bad actors" caused the crash. 
 
 # 41. 1933-06-16
-
+The Glass-Steagall bill passed, and was made official - Wall Street was never going back to the good old days. 
 
 # 42. 1933-06-21
 
