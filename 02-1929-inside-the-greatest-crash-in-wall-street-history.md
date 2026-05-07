@@ -496,7 +496,14 @@ The public, however, was deeply frightened by the bank runs, and wanted them to 
 The Steagall plan, which Glass reluctantly signed on to, called for the creation of a "federal deposit insurance corporation". It would be funded by the nation's banks themselves, which would pay into it; the insurance premiums would be used to protect the first 2.5k$ of deposits, for customers with accounts at failing banks. 
 
 # 40. 1933-05-23
+The house of Morgan faced the Senate Banking committee.  
+- Morgan maintained a "preferred list" of elite clients
+- These insiders got access to hot stock deals at discounted prices
+- Who was on the list? Politicians. Influential figures. People who could help Morgan
 
+This is basically privileged access in exchange for influence - Systemic favoritism. 
+
+Morgan had been seen as the most respectable bank, now even they look compromised. This removes the last illusion that: maybe only "bad actors" caused the crash. 
 
 # 41. 1933-06-16
 
