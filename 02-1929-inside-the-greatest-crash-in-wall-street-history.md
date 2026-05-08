@@ -509,9 +509,29 @@ Morgan had been seen as the most respectable bank, now even they look compromise
 The Glass-Steagall bill passed, and was made official - Wall Street was never going back to the good old days. 
 
 # 42. 1933-06-21
-
+Mitchell was found not guilty. But this did not restore his reputation. 
 
 # Epilogue
+1937-10， Richard Whitney, brother of Morgan partner George Whitney, was exposed as deeply financially compromised. He had:
+- speculated badly and accumulated heavy debts
+- secretly borrowed money improperly
+- misused funds connected to clients and institutions
+
+Eventually, he was convicted of grant larceny and securities theft, and sent to prison.
+
+Lamont insisted that he had no idea that Richard was a criminal, but he clung to the explanation that he had done what any friend would do. 
+
+His brother George, who ultimately rose to chairman of J.P. Morgan in 1950, personally paid back every dollar Richard stole. 
+
+When Churchill became prime minister, he finally had an expense account to match his appetites. And when he died in 1965, he had money  to leave his heirs. 
+
+
+
+
+
+
+
+
 
 
 # Afterword
