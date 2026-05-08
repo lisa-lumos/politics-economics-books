@@ -528,3 +528,10 @@ When Churchill became prime minister, he finally had an expense account to match
 For decades, the debate continued to rage - how responsible were Sunshine Charlie and his peers on Wall Street  for causing the depression? Hamlin argued that Mitchell had not been the feckless stock promoter his critics made his out to be. In fact, he had averted a disaster. But unlike so many others from that period that lost so publicly, Mitchell kept going. 
 
 # Afterword
+The US before fall of 1929 and after it wer two very different nations. The daily life in US certainly felt different. People started questioning all the things they had taken for granted. 
+
+Overtime, in the aggregate, the system works, even if at any given moment, it can look like pure chaos. 
+
+The forces that drove the market to such stratospheric levels - optimism, ambition, and the belief that the future could be endlessly brighter - did not disappear forever. They never do. Human nature - no matter how many warnings are issued, or how many laws are written, people will find new ways to believe that the good times can last forever. And in that collective fever, humanity will again and again lose its head. 
+
+The antidote to irrational exuberance is not regulation by itself, not skepticism, but humility - the humility to know that no system is foolproof, no market fully rational, and no generation exempt. The greater the heights of our certainty, the longer and harder we fall. 
