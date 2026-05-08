@@ -525,13 +525,6 @@ His brother George, who ultimately rose to chairman of J.P. Morgan in 1950, pers
 
 When Churchill became prime minister, he finally had an expense account to match his appetites. And when he died in 1965, he had money  to leave his heirs. 
 
-
-
-
-
-
-
-
-
+For decades, the debate continued to rage - how responsible were Sunshine Charlie and his peers on Wall Street  for causing the depression? Hamlin argued that Mitchell had not been the feckless stock promoter his critics made his out to be. In fact, he had averted a disaster. But unlike so many others from that period that lost so publicly, Mitchell kept going. 
 
 # Afterword
