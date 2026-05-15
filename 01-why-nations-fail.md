@@ -291,7 +291,31 @@ Inclusive political institutions tend to uproot extractive economic institutions
 Inclusive economic institutions will neither support, nor be supported, by extractive political ones. Either they will be transformed into extractive economic institutions to the benefit of the narrow interests that hold power, or the economic dynamism they create will destabilize the extractive political institutions, opening the way for the emergence of inclusive political institutions. 
 
 ## Why not always choose prosperity?
-## The long agony of the congo
+Why the politics of some societies lead to inclusive institutions that foster economic growth, while the politics of the vast majority of societies throughout history has led, and still leads today, to extractive institutions, that hamper economic growth. 
+
+Kingdom of Kongo. Mobutu created a highly extractive set of economic institutions. The citizens were impoverished, but Mobutu and the elite surrounding him became fabulously wealthy. 
+
+Economic institutions that create incentives for economic growth may simultaneously redistribute income/power in such a way, that a predatory dictator and others with political power may become worse off. 
+
+So Mobutu choose to not set up inclusive economic institutions. 
+
+Creative destruction. Even though mechanization led to enormous increases in total incomes, and ultimately became the foundation of modern industrial society, it was bitterly opposed by many. New tech make existing skills/machines obsolete. The process of economic growth, and the inclusive institutions up on which it based, create losers ans well as winners in the political arena and economic marketplace. 
+
+Fear of creative destruction is often at the root of the opposition to inclusive economic/political institutions. 
+
+European history. On the eve of the Industrial Revolution in the 1700s, the governments of most European countries were controlled by traditional elites, whose major source of income was from lands or trading privileges, thanks to monopolies and entry barriers. The spread of industries took resources away from elites, and increased the wages elites needed to pay their workers. These elites also saw the emergence of new businessmen eroding their trading privileges. The elites were economic/political losers from industrialization. They often formed formidable opposition against industrialization. 
+
+Russian and Austria-Hungary history. The elites had far more to lose, industrialization was blocked. So the economy in Russia stalled. They fell behind other European nations, where economic growth took off during the 1800s. 
+
+One lesson is clear: powerful growth often stand against economic progress, and against the engines of prosperity. 
+
+Economic growth is also a transformative/destabilizing process with creative destruction. Who the winners of this conflicts are, has fundamental implications for a nations economic trajectory. 
+
+Therefore, the people who suffer from the extractive economic institutions cannot hope for absolutist rulers to voluntarily change political institutions, and redistribute power in society. The only way to change these political institutions is to force the elite to create more pluralistic institutions. 
+
+The main barrier to political centralization is again a form of fear from change - the fear of opposition/violent reactions. 
+
+## The long agony of the Congo
 ## Growth under extractive political institutions
 
 # 4. Small differences and critical junctures: the weight of history
