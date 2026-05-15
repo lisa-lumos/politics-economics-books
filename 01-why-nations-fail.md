@@ -316,6 +316,20 @@ Therefore, the people who suffer from the extractive economic institutions canno
 The main barrier to political centralization is again a form of fear from change - the fear of opposition/violent reactions. 
 
 ## The long agony of the Congo
+Why economic prosperity is so persistently rare under extractive institutions. 
+
+The Kingdom of Kongo. The wealth of their elite is based on slave plantations. Having better tools, such as plows, would not be worthwhile for Kongolese people, since any extra output that they produced would have been subject to expropriation by the king and his elite. 
+
+The Kongo's government provided very few public services to its citizens, not even basic ones, such as secure property rights, or law/order. On the contrary, the government itself was the biggest threat to its subjects' property and human rights. The institution of slavery means that people cannot choose their jobs, that is crucial for a prosperous economy. 
+
+There was nothing to stop the king from taking people's possessions or bodies, other than the threat of revolt. THe absolutist institutions of Kongo ware kept in place by its formidable army. It is why the king was so eager to adopt European firearms. 
+
+Reforming economic institutions to improve individual property rights would have made Kongolese society at large more prosperous. But it is unlikely, that the elite would have benefited from this wider prosperity. 
+
+When Congo became independent in 1960, the same patter of economic institutions reproduced itself. Its lack of political centralization, is also a feature that it shares with much of sub-Saharan Africa. The extractive economic institutions are still in place, because political power continues to be narrowly concentrated in teh hands of an elite, whose interests are to extract income, and sustain their power. 
+
+Moreover, as in much of the rest of sub-Saharan Africa, infighting triggered by rival groups attempting to take control fo extractive institutions, destroyed any tendency for the state centralization that might have existed. 
+
 ## Growth under extractive political institutions
 
 # 4. Small differences and critical junctures: the weight of history
