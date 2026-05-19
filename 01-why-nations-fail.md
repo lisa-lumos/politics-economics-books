@@ -331,6 +331,13 @@ When Congo became independent in 1960, the same patter of economic institutions 
 Moreover, as in much of the rest of sub-Saharan Africa, infighting triggered by rival groups attempting to take control fo extractive institutions, destroyed any tendency for the state centralization that might have existed. 
 
 ## Growth under extractive political institutions
+There are 2 distinct/complementary ways, in which growth under extractive political institutions can emerge. 
+1. Even if economic institutions are extractive, growth is possible when elites can directly allocate resources to high-productivity activities that they control. Examples: Caribbean Islands in 1500s; Soviet Union in 1950s.
+2. When the institutions permit the development of somewhat, even if not completely, inclusive economic institutions. Examples: The rapid industrialization of South Korea, under General Park. 
+
+There is always the danger that economic institutions become more extractive, and growth stops. Because those controlling power will eventually find it more beneficial to use their power to limit competition, to increase their share of the pie, or even to steal/loot from others, rather than support economic growth. 
+
+Extractive political/economic institutions create a general tendency for infighting, because they lead to the concentration of wealth/power in teh hands of a narrow elite. If another group can outmaneuver this elite and take control of the state, they will be the ones enjoying this wealth and power. 
 
 # 4. Small differences and critical junctures: the weight of history
 ## The world the plague created
