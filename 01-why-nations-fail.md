@@ -341,6 +341,18 @@ Extractive political/economic institutions create a general tendency for infight
 
 # 4. Small differences and critical junctures: the weight of history
 ## The world the plague created
+The Black Death plague wiped out ~half of the population of any area it hit, around 1350s. 
+
+Around 1300s, Europe had a feudal order:
+- based on a hierarchical relationship between the king and the lords beneath him, with the peasants at the bottom. 
+- the king owned the land, and he granted it to the lords, in exchange for military services
+- the lords then allocated land to peasants, in exchange for peasants to perform extensive unpaid labor, and were subject to many fines and taxes
+- peasants were tied to the lands, unable to move without the permission of their lord (also the landlord/judge/jury/police).
+
+It was a highly extractive system, with wealth flowing upward, from the many peasants to the few lords. 
+
+
+
 ## The making of inclusive institutions
 ## Small differences that matter
 ## The contingent path of history
