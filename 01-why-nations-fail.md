@@ -351,6 +351,20 @@ Around 1300s, Europe had a feudal order:
 
 It was a highly extractive system, with wealth flowing upward, from the many peasants to the few lords. 
 
+The massive scarcity of labor created by the plague shook the foundations of the feudal order. It encouraged peasants to demand that things change. They started to free themselves from compulsory labor to their lords. Wages started to rise. The government tried to put a stop on this, and the Peasant's revolt broke out. Even if they were ultimately defeated, feudal labor services dwindled away, an inclusive labor market began to emerge in England, and wages rose. 
+
+But in the East, a more powerful contradictory logic was at work. After the plague, lords started to take over more land, which were already larger than those in Western Europe. Towns were weaker and less populous, and workers began to see their already existing freedoms encroached on. Lords increased taxe. 
+
+Though in the 1350s there were few differences between Western/Eastern Europe in terms of political/economic institutions, by 1600 they were worlds apart. These small difference between the two regions became very consequential for the lives of their people, and for the future of institutional development. 
+
+
+
+
+
+
+
+
+
 
 
 ## The making of inclusive institutions
