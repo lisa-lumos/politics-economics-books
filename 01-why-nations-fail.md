@@ -357,15 +357,7 @@ But in the East, a more powerful contradictory logic was at work. After the plag
 
 Though in the 1350s there were few differences between Western/Eastern Europe in terms of political/economic institutions, by 1600 they were worlds apart. These small difference between the two regions became very consequential for the lives of their people, and for the future of institutional development. 
 
-
-
-
-
-
-
-
-
-
+The Black Death is a example of critical juncture, a major event that disrupted the existing economic/political balance in society. A critical juncture may open the way for breaking the cycle of extractive institutions, or it can intensify the extractive institutions. 
 
 ## The making of inclusive institutions
 ## Small differences that matter
