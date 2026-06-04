@@ -360,6 +360,16 @@ Though in the 1350s there were few differences between Western/Eastern Europe in
 The Black Death is a example of critical juncture, a major event that disrupted the existing economic/political balance in society. A critical juncture may open the way for breaking the cycle of extractive institutions, or it can intensify the extractive institutions. 
 
 ## The making of inclusive institutions
+The political revolution in England were based not on consensus, but, rather, were the result of intense conflict as different groups completed for power, and attempting to structure institutions in their own favor. Two land mark events: the English Civil War in the 1640s, and the Glorious Revolution of 1688. 
+
+The Glorious Revolution. Limited the power of the king/executive, and relocated the power to determine economic institutions to the Parliament. At the same time, it opened up the political system to a broad section of society. It was the foundation for creating a pluralistic society, and it accelerated the process of political centralization. It created the world's first set of inclusive political institutions. 
+
+
+
+
+
+
+
 ## Small differences that matter
 ## The contingent path of history
 ## Understanding the lay of the land
