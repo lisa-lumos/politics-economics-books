@@ -375,6 +375,14 @@ England developed these inclusive political institutions because of 2 factors:
 2. The events leading up to the Glorious Revolution forged a broad/powerful coalition, that were able to place durable constraints on the power of the monarchy/executive, which were force to be open to the demands of this coalition. This laid foundations for pluralistic political institutions. 
 
 ## Small differences that matter
+World inequality dramatically increased with the British Industrial Revolution, because only some parts of the world adopted the innovations and developed. The response of difference nations in this wave of technologies, which determined whether they would achieve sustained economic growth, was largely shaped by the different historical paths of their institutions. 
+
+English political institutions were on their way to pluralism by 1688, compared with those in France and Spain. But if we go back in time 100 yrs, to 1588, the diff shrinks to almost nothing. In England, Elizabeth I was less financially independent, so she had to bed Parliament for more taxes. In exchange, Parliament demanded restrictions on the right of Elizabeth of create monopolies. It was a conflict, that the Parliament gradually won. In Spain, the Cortes lost a similar conflict. Same with Estates-General in France. 
+
+These initially appeared small distinctions started to matter a great deal down the road. 
+
+Elizabeth I couldn't monopolize the trade with the Americas. Other European monarchs could. So in England, Atlantic trade/colonization started to create a large group of wealthy traders with few links to the Crown - but this was not the case with Spain/France. The English traders resented royal control, and demanded changes in political institutions, and the restrictions of of royal privileges. They played a critical role in the English Civil War, and the Glorious Revolution. Similar conflicts took place in Frence/Spain, but in England, it was much more likely to win, because the traders were relatively wealthy, and are more numerous. The Atlantic trade instead strengthened the French/Spanish monarchs.  
+
 ## The contingent path of history
 ## Understanding the lay of the land
 
