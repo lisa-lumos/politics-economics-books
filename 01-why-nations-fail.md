@@ -384,6 +384,14 @@ These initially appeared small distinctions started to matter a great deal down 
 Elizabeth I couldn't monopolize the trade with the Americas. Other European monarchs could. So in England, Atlantic trade/colonization started to create a large group of wealthy traders with few links to the Crown - but this was not the case with Spain/France. The English traders resented royal control, and demanded changes in political institutions, and the restrictions of of royal privileges. They played a critical role in the English Civil War, and the Glorious Revolution. Similar conflicts took place in Frence/Spain, but in England, it was much more likely to win, because the traders were relatively wealthy, and are more numerous. The Atlantic trade instead strengthened the French/Spanish monarchs.  
 
 ## The contingent path of history
+The profits of the Atlantic attracted independent merchants, challenging the Spanish monopoly of the ocean. In 1588, the Spanish decided to put an end to it. So they sent a powerful fleet, however due to bad weather and strategic mistakes, it lost their advantage. Against all odds, the English destroyed much of the fleet of their more powerful opponents. 
+
+The Atlantic seas then opened to English on more equal terms. Without this unlikely victory for the English, the events that would create the transformative critical juncture, and spawn the distinctively pluralistic political institutions of post-1688 England, would never have got moving. 
+
+It was only in a few cases, that critical junctures launched process of political/economic changes that paved the way for economic growth. It can also result in major changes toward, rather than away from, extractive institutions. 
+
+Inclusive institutions can also reverse course, and become gradually more extractive, because of challenges during critical junctures, such as Venice before and after the medieval period. 
+
 ## Understanding the lay of the land
 
 # 5. I've seen the future, and it works: growth under extractive institutions
